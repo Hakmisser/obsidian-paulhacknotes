@@ -1,7 +1,9 @@
 #streamelement 
 
 ---
-#### A RNG based minigame that chat can play that aims to increase individual engagement.
+### A RNG based minigame that chat can play that aims to increase individual engagement.
+
+#### Instructions
 
 - Create an RNG based stream element that chat can activate
 	- Slots machine style game using emotes as the icons
