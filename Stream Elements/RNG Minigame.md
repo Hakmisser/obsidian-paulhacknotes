@@ -15,3 +15,5 @@
 			- Activate a soundbite that signifies the player winning
 			- Showcase the winner on screen until a new winner is chosen
 			- Grant VIP to the winner
+
+Also through creating these soundbites 
