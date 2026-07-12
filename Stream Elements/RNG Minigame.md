@@ -16,4 +16,14 @@
 			- Showcase the winner on screen until a new winner is chosen
 			- Grant VIP to the winner
 
-Also through creating these soundbites 
+Ideas for the soundbites
+- Let's go gambling!
+- On Lose
+	- Aww dang it!
+- On Win
+	- I can't stop winning!
+Optional: Heads or Tails
+- On Heads
+	- Head's up!
+- On Tails
+	- Tails never fails!
