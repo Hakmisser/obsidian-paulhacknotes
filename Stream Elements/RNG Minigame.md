@@ -28,4 +28,4 @@ Optional: Heads or Tails
 	- Look's like your coming out aHEAD!
 - On Tails
 	- Tails never fails!
-	- 
+	- Don't look back cause they're hot on your TAILS!
