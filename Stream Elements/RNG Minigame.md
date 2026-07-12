@@ -25,7 +25,5 @@ Ideas for the soundbites
 Optional: Heads or Tails
 - On Heads
 	- Head's up!
-	- Look's like your coming out aHEAD!
 - On Tails
 	- Tails never fails!
-	- Don't look back cause they're hot on your TAILS!
