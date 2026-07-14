@@ -1,9 +1,6 @@
-- Focus
-	- 
-> [!note]
-> *This section is where you state the main focus/goal of the stream. Ex: Playing games with friends.*
-
-	- _____
+Focus
+*This section is where you state the main focus/goal of the stream. Ex: Playing games with friends.*
+ _____
 	- 
 - Objectives
 	- *This is where you'd state your objectives. Be more specific than the focus in stating out what you want to accomplish.*
