@@ -1,0 +1,1 @@
+Scouts are to attempt to climb to the summit and escape the island, however 
