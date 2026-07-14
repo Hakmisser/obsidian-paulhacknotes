@@ -1,4 +1,4 @@
 - Focus
-	- *This section is where you state the main focus/goal of the stream. Ex: *
+	- *This section is where you state the main focus/goal of the stream. Ex: Playing ga*
 - Objectives
 - Additional Notes
