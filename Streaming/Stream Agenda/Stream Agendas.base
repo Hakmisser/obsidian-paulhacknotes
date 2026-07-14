@@ -3,5 +3,5 @@ views:
     name: Table
     filters:
       and:
-        - file.folder == "obsidian-paulhacknotes/Stream Agenda"
+        - file.folder == "obsidian-paulhacknotes/Streaming/Stream Agenda"
         - file.ext != "base"
