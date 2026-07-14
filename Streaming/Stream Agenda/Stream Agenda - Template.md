@@ -1,10 +1,7 @@
-Focus:
-- 
-Objectives:
-- 
-Extra:
-- 
-Notes:
+
+|     |     |
+| --- | --- |
+|     |     |
 
 
 
