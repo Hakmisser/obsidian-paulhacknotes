@@ -4,3 +4,4 @@ views:
     filters:
       and:
         - file.folder == "obsidian-paulhacknotes/Stream Agenda"
+        - file.ext != "base"
