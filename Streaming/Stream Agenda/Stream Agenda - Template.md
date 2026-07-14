@@ -3,4 +3,4 @@
 - Objectives
 	- *This is where you'd state your objectives. Be more specific than the focus in stating out what you want to accomplish.*
 - Additional Notes
-	- *This is where you'd store additional *
+	- *This is where you'd store additional notes about the stream. These can be written in post if there's anything you want to mention about the stream.*
