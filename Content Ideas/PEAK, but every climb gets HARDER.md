@@ -1,1 +1,1 @@
-Scouts are to attempt to climb to the summit and escape the island, however with every climb they must spin a wheel that will administer a challenge they must endure until the next level in which they will replace their 
+Scouts are to attempt to climb to the summit and escape the island, however with every climb they must spin a wheel that will administer a challenge they must endure until the next level in which they will replace their current challenge with another one.
