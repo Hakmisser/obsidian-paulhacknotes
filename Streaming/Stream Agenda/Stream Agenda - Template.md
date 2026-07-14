@@ -1,3 +1,2 @@
-
-
-
+- Focus
+- Objective
