@@ -1,1 +1,1 @@
-A series where 
+A gimmick where two or more players share the same controls as opposed to normal multiplayer.
