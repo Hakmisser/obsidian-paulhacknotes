@@ -43,4 +43,4 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity
-- 
+- ![[RANDONIMITY]]
