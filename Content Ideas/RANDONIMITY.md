@@ -1,1 +1,3 @@
+#randonimity
+___
 A series where I play random games including early access, demos, prototypes, and more aimed at expanding my gaming library, giving attention to the developers, and to offer my honest feedback.
