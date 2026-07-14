@@ -1,3 +1,4 @@
 - Focus
+	- *This section is where you state the main focus/goal of the stream. Ex: *
 - Objectives
-- Notes
+- Additional Notes
