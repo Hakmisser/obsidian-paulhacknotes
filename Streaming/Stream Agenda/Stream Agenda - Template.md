@@ -1,4 +1,12 @@
 Focus:
+- 
 Objectives:
+- 
 Extra:
-No
+- 
+Notes:
+
+
+| Focus | ddd  |
+| ----- | ---- |
+|       | dddd |
