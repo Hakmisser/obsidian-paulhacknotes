@@ -1,5 +1,5 @@
 #streamelement 
----
+___
 #### A chat based rating system that aims to provide community engagement.
 
 - Create a 5-star rating system based on chat input
