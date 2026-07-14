@@ -1,1 +1,1 @@
-Play random games including early access, demos, prototypes 
+Play random games including early access, demos, prototypes, and more aimed at expanding 
