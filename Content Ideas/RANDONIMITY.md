@@ -1,1 +1,1 @@
-Play random games including early access, demos, prototypes, and more aimed at expanding 
+A series where I play random games including early access, demos, prototypes, and more aimed at expanding my gaming librar
