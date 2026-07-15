@@ -43,4 +43,4 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity
-- Had some pretty good views on this st
+- Had some pretty good views on this stream. Gives me confidence that this series will work out. Need to be more confident in my presentation, maybe more preparation is due
