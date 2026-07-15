@@ -43,4 +43,4 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity 
-- Depending on how long s.p.l.i.t takes it may 
+- Depending on how long s.p.l.i.t takes it may take up the whole stream.

@@ -43,4 +43,4 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity
-- 
+- Had some pretty good views on this st
