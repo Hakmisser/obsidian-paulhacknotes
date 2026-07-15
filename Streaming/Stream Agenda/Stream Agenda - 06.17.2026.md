@@ -11,14 +11,13 @@
 ---
 - s.p.l.i.t
 ```embed
-title: "VOIDFACE Demo on Steam"
-image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3440020/4d7b36959d95abda9b8c23af70dab0b133354982/capsule_616x353.jpg?t=1780940469"
-description: "Face off in a challenging bullet-hell arena shooter to try and clear bite-sized boss rush challenges. Learn to dodge their attacks, cast spells to gain an upper hand, and kill everything that gets in your way."
-url: "https://store.steampowered.com/app/3440020/VOIDFACE_Demo/"
+title: "s.p.l.i.t on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3684610/91c49c09a47aca10485f3b3cb48593fea218be07/capsule_616x353.jpg?t=1759221319"
+description: "A short psychological horror game, where you attempt to gain root access into an unethical superstructure."
+url: "https://store.steampowered.com/app/3684610/split/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-
 - VOIDFACE
 ```embed
 title: "VOIDFACE Demo on Steam"
@@ -28,7 +27,6 @@ url: "https://store.steampowered.com/app/3440020/VOIDFACE_Demo/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-
 - another game
 
 #### Additional Notes
