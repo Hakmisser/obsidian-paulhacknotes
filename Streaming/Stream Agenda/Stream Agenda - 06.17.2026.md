@@ -27,7 +27,15 @@ url: "https://store.steampowered.com/app/3440020/VOIDFACE_Demo/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-- another game
+- Asleep in the Deep
+```embed
+title: "Asleep in the Deep by Harlequin Diver"
+image: "https://img.itch.zone/aW1nLzE3MTIxNjE3LnBuZw==/original/OZCh3U.png"
+description: "Solve puzzles and find your way out of The Deep"
+url: "https://harlequindiver.itch.io/asleep-in-the-deep"
+favicon: ""
+aspectRatio: "79.36507936507937"
+```
 
 #### Additional Notes
 > [!info]
