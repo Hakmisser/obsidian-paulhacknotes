@@ -42,4 +42,5 @@ aspectRatio: "79.36507936507937"
 > This is where you'd store additional notes about the stream. These can be written before or after if there's anything you want to mention about the stream.
 
 ---
-- 
+- #randonimity 
+- Depending on how long s.p.l.i.t takes it may 
