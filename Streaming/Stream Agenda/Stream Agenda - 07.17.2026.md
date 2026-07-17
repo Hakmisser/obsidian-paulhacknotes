@@ -10,6 +10,7 @@
 
 ---
 - s.p.l.i.t
+- s.p.l.i.t should be the main focus. The two other games below are backups.
 ```embed
 title: "s.p.l.i.t on Steam"
 image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3684610/91c49c09a47aca10485f3b3cb48593fea218be07/capsule_616x353.jpg?t=1759221319"
@@ -18,8 +19,6 @@ url: "https://store.steampowered.com/app/3684610/split/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-
-s.p.l.i.t should be the main focus. The two other games below are 
 
 - VOIDFACE
 ```embed
