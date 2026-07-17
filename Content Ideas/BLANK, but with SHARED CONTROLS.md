@@ -1,1 +1,1 @@
-Utilizing computer remoting software, players split or share controls and attempt to play a game as best as possible.
+A gimmick where two or more players share the same controls.
