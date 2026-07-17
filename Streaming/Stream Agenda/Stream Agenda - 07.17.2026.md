@@ -10,7 +10,6 @@
 
 ---
 - s.p.l.i.t
-- s.p.l.i.t should be the main focus. The two other games below are backups.
 ```embed
 title: "s.p.l.i.t on Steam"
 image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3684610/91c49c09a47aca10485f3b3cb48593fea218be07/capsule_616x353.jpg?t=1759221319"
@@ -45,4 +44,4 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity 
-- Depending on how long s.p.l.i.t takes it may take up the whole stream.
+- s.p.l.i.t should be the main focus. 
