@@ -18,7 +18,6 @@ url: "https://store.steampowered.com/app/3684610/split/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-
 - VOIDFACE
 ```embed
 title: "VOIDFACE Demo on Steam"
