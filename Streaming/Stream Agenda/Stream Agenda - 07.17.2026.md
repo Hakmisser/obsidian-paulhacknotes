@@ -18,6 +18,9 @@ url: "https://store.steampowered.com/app/3684610/split/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
+
+s.p.l.i.t should be the main focus. The two other games below are 
+
 - VOIDFACE
 ```embed
 title: "VOIDFACE Demo on Steam"
