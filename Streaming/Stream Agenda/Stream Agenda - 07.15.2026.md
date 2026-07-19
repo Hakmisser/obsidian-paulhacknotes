@@ -46,6 +46,15 @@ aspectRatio: "79.36507936507937"
 - Had some pretty good views on this stream. Gives me confidence that this series will work out. 
 - Need to be more confident in my presentation, maybe more preparation is due, but I fear overpreparing may make me seem disingenuous.
 
+```embed
+title: "YOU CAN DIE | COBB CAN MOVE"
+image: "https://i.ytimg.com/vi/9ktqLixQQ04/maxresdefault.jpg"
+description: "Can confirm COBB can indeed freak ;)Subscribe! ► https://www.youtube.com/@HakmisserWatch Me LIVE! ► https://www.twitch.tv/hakmisserSocials -Twitter/X ► https..."
+url: "https://youtu.be/9ktqLixQQ04?si=SDUp83-IPALwYAlk"
+favicon: ""
+aspectRatio: "56.25"
+```
+
 ![[Screenshot 2026-07-15 164922.webp|697]]
 
 ![[image.webp]]
