@@ -46,5 +46,5 @@ aspectRatio: "79.36507936507937"
 - Had some pretty good views on this stream. Gives me confidence that this series will work out. 
 - Need to be more confident in my presentation, maybe more preparation is due, but I fear overpreparing may make me seem disingenuous.
 
-![[6ea94858cf1ba2b944e6b2cec46c7da0_MD5.webp|Open: Stream Agenda - 07.15.2026-1784486210126.webp]]
+[[6ea94858cf1ba2b944e6b2cec46c7da0_MD5.webp|Open: Stream Agenda - 07.15.2026-1784486210126.webp]]
 ![[6ea94858cf1ba2b944e6b2cec46c7da0_MD5.webp]]
