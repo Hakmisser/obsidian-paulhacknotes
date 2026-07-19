@@ -43,4 +43,3 @@ aspectRatio: "79.36507936507937"
 
 ---
 - #randonimity 
-- s.p.l.i.t should be the main focus. VOIDFACE and Asleep in the Deep are there as backups for time.
