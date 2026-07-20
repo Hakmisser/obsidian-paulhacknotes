@@ -26,6 +26,8 @@ aspectRatio: "57.3051948051948"
 - #randonimity 
 - Some of my bits fall flat especially when I give up on them half way through. I should work on being more confident again, or maybe just thinking them through more before they come out.
 
+![[image-1.webp]]
+
 ```embed
 title: "hacker voice i'm in | s.p.l.i.t. (VOD)"
 image: "https://i.ytimg.com/vi/Hj1qcZmdEgg/maxresdefault.jpg"
