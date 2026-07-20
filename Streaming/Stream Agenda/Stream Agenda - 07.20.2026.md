@@ -24,4 +24,13 @@ aspectRatio: "57.3051948051948"
 
 ---
 - #randonimity 
-- Some of my bits fall flat especially when I give up on them half way through. I should 
+- Some of my bits fall flat especially when I give up on them half way through. I should work on being more confident again, or maybe just thinking them through more before they come out.
+
+```embed
+title: "hacker voice i'm in | s.p.l.i.t. (VOD)"
+image: "https://i.ytimg.com/vi/Hj1qcZmdEgg/maxresdefault.jpg"
+description: "Streamed on 07/20/2026s.p.l.i.t ► https://store.steampowered.com/app/3684610/split/Check me out LIVE! ► https://www.twitch.tv/hakmisserMain Channel ► @hakmisser"
+url: "https://youtu.be/Hj1qcZmdEgg"
+favicon: ""
+aspectRatio: "56.25"
+```
