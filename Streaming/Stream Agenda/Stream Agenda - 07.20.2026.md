@@ -3,7 +3,7 @@
 > This section is where you state the main focus/goal of the stream.
 
 ---
-- Play and review short games, demos, prototypes, early access and, etc...
+- Playing a 
 #### Objectives
 > [!info]
 > This is where you'd state your objectives. Be more specific than the focus in stating out what you want to accomplish.
