@@ -18,7 +18,16 @@ url: "https://store.steampowered.com/app/4061320/Retromine/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-
+- 13 BONES
+```embed
+title: "13 BONES on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/4417710/6cbc2b118e719a422752567fa13cbea76a92f746/capsule_616x353.jpg?t=1784648316"
+description: "A fast-paced card battler. Like BLACKJACK, but with added MONSTERS and VIOLENCE. Build your DECK and push your LUCK to earn your freedom !"
+url: "https://store.steampowered.com/app/4417710/13_BONES/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
+- 
 
 #### Additional Notes
 > [!info]
