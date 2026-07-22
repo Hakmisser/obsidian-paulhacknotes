@@ -43,3 +43,5 @@ aspectRatio: "57.3051948051948"
 
 ---
 - #randonimity 
+
+![[image-3.webp]]
