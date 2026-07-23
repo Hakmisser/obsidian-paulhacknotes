@@ -66,4 +66,12 @@ favicon: ""
 aspectRatio: "56.25"
 ```
 
+```embed
+title: " - YouTube"
+image: ""
+description: "Enjoy the videos and music you love, upload original content, and share it all with friends, family, and the world on YouTube."
+url: "https://youtu.be/X9U6s3ufSiU"
+favicon: ""
+```
+
 ![[image.webp]]
