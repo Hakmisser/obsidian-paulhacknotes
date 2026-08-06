@@ -18,15 +18,6 @@ url: "https://store.steampowered.com/app/2747330/Species_Unknown/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-- Murky Divers
-```embed
-title: "Murky Divers on Steam"
-image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/2963880/7614757c7ec39b251bc360de16493029fefd9b04/capsule_616x353_alt_assets_1.jpg?t=1784115677"
-description: "Solo or up to 8 players. Get rid of your employer's failed experiments in abandoned underwater labs. Navigate your submarine, avoid abyssal terrors, and remove all corpses."
-url: "https://store.steampowered.com/app/2963880/Murky_Divers/"
-favicon: ""
-aspectRatio: "57.3051948051948"
-```
 - Another Door
 ```embed
 title: "Another Door Demo on Steam"
