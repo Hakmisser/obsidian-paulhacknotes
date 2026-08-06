@@ -45,6 +45,15 @@ url: "https://store.steampowered.com/app/3844970/Burglin_Gnomes/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
+- Liar's Bar
+```embed
+title: "Liar's Bar on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3097560/caada793e3ba27c5c9775c8849d848c637f46afd/capsule_616x353.jpg?t=1783933354"
+description: "Dive into this multiplayer online experience set in a sketchy bar where the games are as dangerous as the patrons. Join a table of 4 and test your skills in Liar's Dice and Liar's Deck, where lying and bluffing are key to victory. Ready for a night at Liar's Bar?"
+url: "https://store.steampowered.com/app/3097560/Liars_Bar/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
 
 #### Additional Notes
 > [!info]
