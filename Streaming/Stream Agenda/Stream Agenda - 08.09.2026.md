@@ -9,6 +9,15 @@
 > This is where you'd state your objectives. Be more specific than the focus in stating out what you want to accomplish.
 
 ---
+- Palworld
+```embed
+title: "Palworld on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/1623730/57df7aed61d65c9012a11d58e812aff275b7daed/capsule_616x353.jpg?t=1784714419"
+description: "Fight, farm, build and work alongside mysterious creatures called &quot;Pals&quot; in this completely new multiplayer, open world survival and crafting game!"
+url: "https://store.steampowered.com/app/1623730/Palworld/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
 - Species: Unknown
 ```embed
 title: "Save 20% on Species: Unknown on Steam"
@@ -24,15 +33,6 @@ title: "Another Door Demo on Steam"
 image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/4760210/eadf951dd400e874d3947b33d01029fcdc6e9bc7/capsule_616x353.jpg?t=1784901399"
 description: "Another Door is a multiplayer, turn-based roguelike with monsters, despair, risk and betrayal. Hide your intentions, bluff to survive and bet on your luck. Will you back out, or venture through Another Door?"
 url: "https://store.steampowered.com/app/4760210/Another_Door_Demo/"
-favicon: ""
-aspectRatio: "57.3051948051948"
-```
-- Palworld
-```embed
-title: "Palworld on Steam"
-image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/1623730/57df7aed61d65c9012a11d58e812aff275b7daed/capsule_616x353.jpg?t=1784714419"
-description: "Fight, farm, build and work alongside mysterious creatures called &quot;Pals&quot; in this completely new multiplayer, open world survival and crafting game!"
-url: "https://store.steampowered.com/app/1623730/Palworld/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
