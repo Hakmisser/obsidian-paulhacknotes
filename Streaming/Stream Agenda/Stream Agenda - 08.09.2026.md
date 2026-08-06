@@ -45,6 +45,15 @@ url: "https://store.steampowered.com/app/1623730/Palworld/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
+- Burglin' Gnomes
+```embed
+title: "Burglin' Gnomes on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/3844970/b779b481bdcfbd0fe04bdab741be885d1d13ed14/capsule_616x353.jpg?t=1781100001"
+description: "An online Co-op game about breaking into houses and causing havoc as a tiny gnome. Avoid danger, repurpose stolen household items, and complete tasks to meet the High-Gnome’s demands. Craft equipment and upgrade your home to make your missions easier and more successful."
+url: "https://store.steampowered.com/app/3844970/Burglin_Gnomes/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
 
 #### Additional Notes
 > [!info]
