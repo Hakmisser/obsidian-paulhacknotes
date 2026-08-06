@@ -36,6 +36,15 @@ url: "https://store.steampowered.com/app/4760210/Another_Door_Demo/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
+- Palworld
+```embed
+title: "Palworld on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/1623730/57df7aed61d65c9012a11d58e812aff275b7daed/capsule_616x353.jpg?t=1784714419"
+description: "Fight, farm, build and work alongside mysterious creatures called &quot;Pals&quot; in this completely new multiplayer, open world survival and crafting game!"
+url: "https://store.steampowered.com/app/1623730/Palworld/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
 
 #### Additional Notes
 > [!info]
