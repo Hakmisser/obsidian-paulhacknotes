@@ -18,7 +18,25 @@ url: "https://store.steampowered.com/app/2747330/Species_Unknown/"
 favicon: ""
 aspectRatio: "57.3051948051948"
 ```
-- 
+- Murky Divers
+```embed
+title: "Murky Divers on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/2963880/7614757c7ec39b251bc360de16493029fefd9b04/capsule_616x353_alt_assets_1.jpg?t=1784115677"
+description: "Solo or up to 8 players. Get rid of your employer's failed experiments in abandoned underwater labs. Navigate your submarine, avoid abyssal terrors, and remove all corpses."
+url: "https://store.steampowered.com/app/2963880/Murky_Divers/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
+- Another Door
+```embed
+title: "Another Door Demo on Steam"
+image: "https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/4760210/eadf951dd400e874d3947b33d01029fcdc6e9bc7/capsule_616x353.jpg?t=1784901399"
+description: "Another Door is a multiplayer, turn-based roguelike with monsters, despair, risk and betrayal. Hide your intentions, bluff to survive and bet on your luck. Will you back out, or venture through Another Door?"
+url: "https://store.steampowered.com/app/4760210/Another_Door_Demo/"
+favicon: ""
+aspectRatio: "57.3051948051948"
+```
+
 #### Additional Notes
 > [!info]
 > This is where you'd store additional notes about the stream. These can be written before or after if there's anything you want to mention about the stream.
