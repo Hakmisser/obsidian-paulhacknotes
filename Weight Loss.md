@@ -1,2 +1,2 @@
 Calorie Deficit
-- Calorie Limit: 
+- Calorie Limit: 2240/d 15680
