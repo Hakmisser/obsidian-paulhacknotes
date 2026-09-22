@@ -1,2 +1,2 @@
 Calorie Deficit
-- Cal
+- Calorie Limit: 
