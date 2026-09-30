@@ -1,1 +1,1 @@
-Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Iron Lung, Backrooms, Obsession, Resident Evil
+Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Iron Lung, Backrooms, Obsession, Resident Evil, and more which are all phenomenal in their own ways 
