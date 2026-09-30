@@ -6,3 +6,6 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 
 ###### Works Cited
 ___
+“Ice Cream Man.” _YouTube_, www.youtube.com/watch?v=Hl5zl7NcZiA.
+
+Roth, Eli, and Noah Belson. _Ice Cream Man_. The Horror Section and MCT Studios, 2026, https://www.imdb.com/title/tt36893729/.
