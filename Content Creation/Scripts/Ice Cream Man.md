@@ -20,7 +20,7 @@ This is Jared, or Jarhead as his teammates call him. The reason he's goofing aro
 ![[image-15.webp]]
 > "Or your mom's ass cause I'm about to spank this bitch" - Moog
 
-WHOA, WHOA, WHOA, What the hell Moog? 
+WHOA, WHOA, WHOA, What the hell Moog? Yeah so 
 
 
 ###### Works Cited
