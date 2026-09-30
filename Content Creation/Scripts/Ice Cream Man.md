@@ -10,7 +10,15 @@ With all that I believe it's time to delve into the sweet, sugary, gory abominat
 
 The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay. The ice cream truck strolls through town, we linger on a sign for the "Law Offices of Mayfair & Sons," which is a clever little film tactic to say, "This? This right here. This important," and we end off in a luscious field where kids are playing, having fun, and enjoying America's pastime, baseball, truly an American dream.
 
-![[image-12.webp]]
+![[image-13.webp]]
+()
+
+
+
+
+
+
+
 
 ###### Works Cited
 ___
