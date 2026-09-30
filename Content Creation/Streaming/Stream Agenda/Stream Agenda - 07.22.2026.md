@@ -42,6 +42,5 @@ aspectRatio: "57.3051948051948"
 > This is where you'd store additional notes about the stream. These can be written before or after if there's anything you want to mention about the stream.
 
 ---
-- #randonimity 
 
 ![[image-2.webp]]
