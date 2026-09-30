@@ -2,7 +2,7 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 
 "Ice Cream Man" directed and written by Eli Roth, is a horror comedy released in theaters August 7th, 2026, and let me tell you the ratings and overall reviews for this movie were not kind at all and for good reason. This movie is filled with a ridiculous amount of gore and children offing people, it's basically just children unaliving people for an hour and twenty-six minutes, but the YouTube movie comments are great!
 
-
+> FINALLY, IT'S IN THE YOUTUBE MOVIES!!!! AND I LOVE THE FULL MOVIE SO MUCH! - ### [@puppet546](https://www.youtube.com/@puppet546)
 
 ###### Works Cited
 ___
