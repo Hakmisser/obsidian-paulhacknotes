@@ -1,3 +1,2 @@
-#gimmick
 ___
 A gimmick where two or more players share the same controls.
