@@ -13,7 +13,7 @@ The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay
 ![[image-13.webp]]
 (character is repeatedly throwing baseball glove in the air and letting it hit him)
 
-
+Kid what the fuck are you doing, you're going to 
 
 
 
