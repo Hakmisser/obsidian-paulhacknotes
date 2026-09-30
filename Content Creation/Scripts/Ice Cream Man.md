@@ -5,6 +5,10 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 ![[image-8.webp]]
 ![[image-9.webp|374x100]]
 ![[image-10.webp]]
+
+
+
+
 ###### Works Cited
 ___
 “Ice Cream Man.” _YouTube_, www.youtube.com/watch?v=Hl5zl7NcZiA.
