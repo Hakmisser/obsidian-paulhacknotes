@@ -6,7 +6,7 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 ![[image-9.webp|374x100]]
 ![[image-10.webp]]
 
-With all that I believe it's time to delve into the sweet 
+With all that I believe it's time to delve into the sweet, sugary, gory abomination that is "Ice Cream Man."
 
 
 ###### Works Cited
