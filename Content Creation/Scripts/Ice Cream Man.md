@@ -18,9 +18,9 @@ Kid what the fuck are you doing, lock in. You think we're gonna make it to final
 This is Jared, or Jarhead as his teammates call him. The reason he's goofing around instead of paying attention to the game is because he has zero faith in his opponent, Moog, to be able to hit anything which the following scene reinforces that idea.
 
 ![[image-15.webp]]
-> "Or your mom's ass cause I'm about to spank this bitch" - Moog (Matias Tafilica)
+> "Or your mom's ass cause I'm about to spank this bitch" - Moog
 
-
+WHOA, WHOA, WHOA, What the hell Moog? 
 
 
 ###### Works Cited
