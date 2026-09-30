@@ -1,1 +1,1 @@
-Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Markiplier's Iron Lung, Curry Barker's Obsession, 
+Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Iron Lung, Backrooms, Obsession
