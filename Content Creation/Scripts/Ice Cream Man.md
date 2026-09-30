@@ -8,7 +8,7 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 
 With all that I believe it's time to delve into the sweet, sugary, gory abomination that is "Ice Cream Man."
 
-The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay. The ice cream truck strolls through town, we linger on a sign for the "Law Offices of Mayfair & Sons," which is a clever little film tactic to say, "This? This right here. This important," and 
+The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay. The ice cream truck strolls through town, we linger on a sign for the "Law Offices of Mayfair & Sons," which is a clever little film tactic to say, "This? This right here. This important," and we end off in a luscious field where 
 
 
 ###### Works Cited
