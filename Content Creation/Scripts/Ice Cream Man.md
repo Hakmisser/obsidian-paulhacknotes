@@ -8,6 +8,8 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 
 With all that I believe it's time to delve into the sweet, sugary, gory abomination that is "Ice Cream Man."
 
+The movie opens on a 
+
 
 ###### Works Cited
 ___
