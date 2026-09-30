@@ -22,7 +22,7 @@ This is Jared, or Jarhead as his teammates call him. The reason he's goofing aro
 
 WHOA, WHOA, WHOA, What the hell Moog? Yeah so remember when I said that this movie is a horror comedy? A big part of that comedy just comes from kids cursing or just saying the most out of pocket things. You can definitely tell that they were trying to shoot for that R-rating (movie is still unrated btw) with the dialogue, and the gore we'll get to that (can't show most of it cause YouTube would send me to the sun), but they were definitely aiming for the more edgy kind of audience with some of the things said in this movie.
 
-Anyways Moog  up hitting the ball which hits a distracted Jared in the arm 
+Anyways Moog ends up hitting the ball which hits a distracted Jared in the arm which ultimately 
 
 
 ###### Works Cited
