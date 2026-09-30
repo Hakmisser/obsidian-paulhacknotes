@@ -22,7 +22,9 @@ This is Jared, or Jarhead as his teammates call him. The reason he's goofing aro
 
 WHOA, WHOA, WHOA, What the hell Moog? Yeah so remember when I said that this movie is a horror comedy? A big part of that comedy just comes from kids cursing or just saying the most out of pocket things. You can definitely tell that they were trying to shoot for that R-rating (movie is still unrated btw) with the dialogue, and the gore we'll get to that (can't show most of it cause YouTube would send me to the sun), but they were definitely aiming for the more edgy kind of audience with some of the things said in this movie.
 
-Anyways Moog ends up hitting the ball which hits a distracted Jared in the arm which ultimately wins Moog and his team the game, making Jared and his team the losers. The coach then offers to get everyone ice cream and Jared gets bullied for selling the game. This eventually ends up in a scene where Jared is offered ice cream but gets it stolen by his sister, Lizzie. Why you may ask? Well it's because Jared is lactose intolerant.
+Anyways Moog ends up hitting the ball which hits a distracted Jared in the arm which ultimately wins Moog and his team the game, making Jared and his team the losers. The coach then offers to get everyone ice cream and Jared gets bullied for selling the game. This eventually ends up in a scene where Jared is offered ice cream but gets it stolen by his sister, Lizzie. Why you may ask? Well it's because Jared is lactose intolerant and he can't have any ice cream, and he doesn't deserve it because HE SOLD US THE GODDAMN GAME!
+
+
 
 
 ###### Works Cited
