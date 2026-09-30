@@ -1,4 +1,3 @@
-#streamelement 
 ___
 #### A chat based rating system that aims to provide community engagement.
 
