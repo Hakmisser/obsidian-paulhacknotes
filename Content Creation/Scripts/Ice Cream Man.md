@@ -8,7 +8,7 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 
 With all that I believe it's time to delve into the sweet, sugary, gory abomination that is "Ice Cream Man."
 
-The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay. The town is silent with nothing but the jingle of the ice cream truck echoing through the streets.
+The movie opens on a shot of an ice cream truck entering the town of Bayleen Bay, and at first watch 
 
 
 ###### Works Cited
