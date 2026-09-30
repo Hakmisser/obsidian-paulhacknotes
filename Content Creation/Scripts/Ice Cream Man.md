@@ -5,6 +5,9 @@ Right now we live in a time where there is no shortage of good horror movies. Ju
 > [!quote]
 > "Will there be a sequel" - @Itsyourboyjoshua7
 
+> [!quote]
+> "FINALLY, IT'S IN THE YOUTUBE MOVIES!!!! AND I LOVE THE FULL MOVIE SO MUCH!" - @puppet546
+
 
 
 ###### Works Cited
