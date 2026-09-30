@@ -1,1 +1,1 @@
-In a time where there is no real shortage of good horror movies
+Right now we live in a time where there is no shortage of good horror movies. Just this past year we got 
