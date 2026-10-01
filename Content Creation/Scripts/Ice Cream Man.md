@@ -28,7 +28,7 @@ We then head over to Rodger's Hardware where Lizzie and Jared talk to the owner,
 
 ![[image-16.webp]]
 
-Chrizz? And what is that logo? Did this guy have long hair at some point? 
+Chrizz? And what is that logo? Did this guy have long hair at some point, cause right now I feel like the Tiger King is going to come and mow my lawn. This is Chris
 
 
 
