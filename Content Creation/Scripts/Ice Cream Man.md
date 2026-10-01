@@ -42,7 +42,7 @@ They exchange in some more banter before leaving the store. Shortly after exitin
 > [!fail]
 > An animation that is made using A.I.
 
-Did you catch it? Yeah this along
+Did you catch it? Yeah
 
 ###### Works Cited
 ___
