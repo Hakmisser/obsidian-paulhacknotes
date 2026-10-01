@@ -42,7 +42,7 @@ They exchange in some more banter before leaving the store. Shortly after exitin
 > [!fail]
 > An animation that is made using A.I.
 
-Did you catch it? Yeah this is one of those movies that decided to get ahead of the c
+Did you catch it? Yeah this is one of those movies that decided to get ahead of the curve and implement the new technology of A.I. into their film. This doesn't look good, it looks so 
 
 ###### Works Cited
 ___
