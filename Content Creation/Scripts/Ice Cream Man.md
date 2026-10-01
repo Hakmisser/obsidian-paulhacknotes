@@ -24,7 +24,7 @@ WHOA, WHOA, WHOA, What the hell Moog? Yeah so remember when I said that this mov
 
 Anyways Moog ends up hitting the ball which hits a distracted Jared in the arm which ultimately wins Moog and his team the game, making Jared and his team the losers. The coach then offers to get everyone ice cream and Jared gets bullied for selling the game. This eventually ends up in a scene where Jared is offered ice cream but gets it stolen by his sister, Lizzie. Why you may ask? Well it's because Jared is lactose intolerant and he can't have any ice cream, and he doesn't deserve it because HE SOLD US THE GODDAMN GAME!
 
-We then head over to Rodger's Hardware
+We then head over to Rodger's Hardware where Lizzie and 
 
 
 ###### Works Cited
