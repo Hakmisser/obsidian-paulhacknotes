@@ -36,7 +36,7 @@ Chrizz? And what is that logo? Did this guy have long hair at some point, cause 
 > [!quote]
 > "You're going to need that cash in high school. Chicks are expensive, trust me I know." - Chris
 
-
+They exchange in some playful banter that leaves the audience wondering, "w"
 
 
 
