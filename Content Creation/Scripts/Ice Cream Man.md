@@ -28,7 +28,11 @@ We then head over to Rodger's Hardware where Lizzie and Jared talk to the owner,
 
 ![[image-16.webp]]
 
-Chrizz? 
+Chrizz?
+
+
+
+
 ###### Works Cited
 ___
 “Ice Cream Man.” _YouTube_, www.youtube.com/watch?v=Hl5zl7NcZiA.
