@@ -42,7 +42,7 @@ They exchange in some more banter before leaving the store. Shortly after exitin
 > [!fail]
 > An animation that is made using A.I.
 
-Did you catch it? Yeah this is one of those movies that decided to get ahead of the curve and implement the new technology of A.I. into their film. This doesn't look good, it looks so weird and off putting, as most A.I. tends to look. In the animation one of the kids switches between holding one ice cream and then magically summons another one from thin air. I have my own opinions on A.I. but my opinion and the general consensus both seem to agree that utilizing generative A.I. for creative use, to create art, basically invalidates your 
+Did you catch it? Yeah this is one of those movies that decided to get ahead of the curve and implement the new technology of A.I. into their film. This doesn't look good, it looks so weird and off putting, as most A.I. tends to look. In the animation one of the kids switches between holding one ice cream and then magically summons another one from thin air. I have my own opinions on A.I. but my opinion and the general consensus both seem to agree that utilizing generative A.I. for creative use, to create art, essentially invalidates your status as a creator, because you didn't make it, the A.I. did. And there 
 
 ###### Works Cited
 ___
