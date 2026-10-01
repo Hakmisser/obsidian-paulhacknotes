@@ -26,9 +26,9 @@ Anyways Moog ends up hitting the ball which hits a distracted Jared in the arm w
 
 We then head over to Rodger's Hardware where Lizzie and Jared talk to the owner, Rodger, about their summer plans. Lizzie wants to be able to actually enjoy her summer instead of working with her parents at their law firm. As for Jared he-
 
+![[image-16.webp]]
 
-
-
+Chrizz? 
 ###### Works Cited
 ___
 “Ice Cream Man.” _YouTube_, www.youtube.com/watch?v=Hl5zl7NcZiA.
