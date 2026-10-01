@@ -28,7 +28,9 @@ We then head over to Rodger's Hardware where Lizzie and Jared talk to the owner,
 
 ![[image-16.webp]]
 
-Chrizz? And what is that logo? Did this guy have long hair at some point, cause right now I feel like the Tiger King is going to come and mow my lawn. This is Chris, and he and Lizzie used to date and now it's a whole situation where he's trying to get her back and she is just not falling it at all, you get the gist. Chris tries to get 
+Chrizz? And what is that logo? Did this guy have long hair at some point, cause right now I feel like the Tiger King is going to come and mow my lawn. This is Chris, and he and Lizzie used to date and now it's a whole situation where he's trying to get her back and she is just not falling it at all, you get the gist. Chris tries to get Jared to work with him for the summer instead saying,
+
+
 
 
 
