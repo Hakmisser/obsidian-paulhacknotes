@@ -18,7 +18,9 @@ Kid what the fuck are you doing, lock in. You think we're gonna make it to final
 This is Jared, or Jarhead as his teammates call him. The reason he's goofing around instead of paying attention to the game is because he has zero faith in his opponent, Moog, to be able to hit anything which the following scene reinforces that idea.
 
 ![[image-15.webp]]
+> [!quote]
 > "Or your mom's ass cause I'm about to spank this bitch" - Moog
+
 
 WHOA, WHOA, WHOA, What the hell Moog? Yeah so remember when I said that this movie is a horror comedy? A big part of that comedy just comes from kids cursing or just saying the most out of pocket things. You can definitely tell that they were trying to shoot for that R-rating (movie is still unrated btw) with the dialogue, and the gore we'll get to that (can't show most of it cause YouTube would send me to the sun), but they were definitely aiming for the more edgy kind of audience with some of the things said in this movie.
 
@@ -30,6 +32,8 @@ We then head over to Rodger's Hardware where Lizzie and Jared talk to the owner,
 
 Chrizz? And what is that logo? Did this guy have long hair at some point, cause right now I feel like the Tiger King is going to come and mow my lawn. This is Chris, and he and Lizzie used to date and now it's a whole situation where he's trying to get her back and she is just not falling it at all, you get the gist. Chris tries to get Jared to work with him for the summer instead saying,
 
+> [!quote]
+> "You're going to need that cash in high school. Chicks are expensive, trust me I know." - Chris
 
 
 
