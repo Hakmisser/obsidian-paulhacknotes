@@ -36,7 +36,9 @@ Chrizz? And what is that logo? Did this guy have long hair at some point, cause 
 > [!quote]
 > "You're going to need that cash in high school. Chicks are expensive, trust me I know." - Chris
 
-They exchange in some more banter before leaving the store. Shortly after exiting the store a friend of Lizzie comes up asking her if she's "got the stuff" which Jared immediately asks if they're doing illicit substances and if he could have some. Lizzie tells him to go wait in the car and on the way there Jared gets a phone call from one of his friends to ask if he has any fireworks left and to bring them over, but before the call ends the screen glitches and we get a 
+They exchange in some more banter before leaving the store. Shortly after exiting the store a friend of Lizzie comes up asking her if she's "got the stuff" which Jared immediately asks if they're doing illicit substances and if he could have some. Lizzie tells him to go wait in the car and on the way there Jared gets a phone call from one of his friends to ask if he has any fireworks left and to bring them over, but before the call ends the screen glitches and we get a good long look at this:
+
+![[image-18.webp]]
 
 
 
