@@ -50,7 +50,7 @@ Now that that rant is over let's get back into the movie. Very quickly we realiz
 
 Jared finally arrives home for family dinner and we see no other than Eli Roth, director, writer, and actor, playing Jared's dad, Marty. Anyways they have a pretty normal conversation, Lizzie talks about how she doesn't want to spend her summer working in her parents law firm, Jared mentions the weird ice cream man, and then Lizzie asks her mom, played by Karen Cliche, if she could use the car so she could participate in skip day. Their parents obviously giver some push back and ultimately tell her no and she storms off.
 
-Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the ice cream man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one w
+Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the ice cream man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways. (again movie is s)
 
 ###### Works Cited
 ___
