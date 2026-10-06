@@ -50,7 +50,7 @@ Now that that rant is over let's get back into the movie. Very quickly we realiz
 
 Jared finally arrives home for family dinner and we see no other than Eli Roth, director, writer, and actor, playing Jared's dad, Marty. Anyways they have a pretty normal conversation, Lizzie talks about how she doesn't want to spend her summer working in her parents law firm, Jared mentions the weird ice cream man, and then Lizzie asks her mom, played by Karen Cliche, if she could use the car so she could participate in skip day. Their parents obviously giver some push back and ultimately tell her no and she storms off.
 
-Now here's where we finally get to the brunt of the movie.
+Now here's where we finally get to the brunt of the movie. Jared wakes up t
 
 ###### Works Cited
 ___
