@@ -36,7 +36,7 @@ Chrizz? And what is that logo? Did this guy have long hair at some point, cause 
 > [!quote]
 > "You're going to need that cash in high school. Chicks are expensive, trust me I know." - Chris
 
-They exchange in some more banter before leaving the store. Shortly after exiting the store a friend of Lizzie comes up asking her if she's "got the stuff" which Jared immediately asks if they're doing illicit substances and if he could have some. Lizzie tells him to go wait in the car and on the way there Jared gets a phone call from one of his friends to ask if he has any fireworks left and to bring them over, but before the call ends the screen glitches and we get a good long look at this:
+They exchange in some more banter before leaving the store. Shortly after exiting the store a friend of Lizzie comes up asking her if she's "got the stuff" which Jared immediately asks if they're doing illicit substances and if he could have some. Lizzie tells him to go wait in the car and on the way there Jared gets a phone call from his to ask if he has any fireworks left and to bring them over, but before the call ends the screen glitches and we get a good long look at this:
 
 ![[image-18.webp]]
 > [!fail]
@@ -44,7 +44,7 @@ They exchange in some more banter before leaving the store. Shortly after exitin
 
 Did you catch it? Yeah this is one of those movies that decided to get ahead of the curve and implement the new technology of AI into their film. This doesn't look good, it looks so weird and off putting, as most A.I. tends to look. In the animation one of the kids switches between holding one ice cream and then magically summons another one from thin air. I have my own opinions on AI but my opinion and the general consensus both seem to agree that utilizing generative AI for creative use, to create art, essentially invalidates your status as a creator, because you didn't make it, the AI did. Although we hate to admit it, AI nowadays has become terrifically impressive at mimicking real life to the point where some people cannot tell the difference anymore. This is not one of those times. This is so obviously AI it hurts to look at. I physically winced watching this scene for the first time it was so apparent and thrown in your face that even in their monumental laziness they fell short. Listen, I'm not here to be some kind of movie critic, promote the movie, or anything of the sort. While I am critiquing the work, I'm just here to have fun share my experience watching this incredibly bizarre movie with y'all, and even without the use of AI this movie continues to amaze me with how batshit crazy and stupid some of the things in the movie are.
 
-Now that that rant is over let's get back into the movie. Very quickly we realize that all the kids are watching this same animation while also enjoying their nice frozen treat. As Jared is noticing this, the ice cream man drives by and gives Jared a passing smile. 
+Now that that rant is over let's get back into the movie. Very quickly we realize that all the kids are watching this same animation while also enjoying their nice frozen treat. As Jared is noticing this, the ice cream man drives by and gives Jared a passing smile. Jared rides over to 
 
 ###### Works Cited
 ___
