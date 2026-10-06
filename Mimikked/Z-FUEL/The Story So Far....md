@@ -1,1 +1,1 @@
-Z-FUEL is a product by Zeta Site that acts as a 'reverse energy drink.' 
+Z-FUEL is a product by Zeta Site that acts as a 'reverse energy drink.' Using their patented 'De-energizing Compound' Zeta Site markets their products as a 
