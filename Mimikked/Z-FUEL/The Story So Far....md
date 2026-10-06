@@ -6,3 +6,4 @@ Z-FUEL is a product by Zeta Site that acts as a 'reverse energy drink.' Using th
 In order to certify the effectiveness of the De-Energizing Compound, and to maintain secrecy, Zeta Site gathered volunteers for their new 'project' as a way to gather human subject for their trials. Throughout these trials of them perfecting the compound, subjects tend to develop deformities. These deformities are only present for the first and second set of trials that they have done, while others still become zombie-like drones they do not form deformities, making them able to blend back into normal society without even more increased risk. As for the subjects originating from the first and second set of trials, they are kept as a sort of personal army utilized by Zeta Site.
 
 ### Ethan Brooke
+Ethan Brooke is one of the first to 
