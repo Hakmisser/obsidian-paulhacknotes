@@ -46,7 +46,7 @@ Did you catch it? Yeah this is one of those movies that decided to get ahead of 
 
 Now that that rant is over let's get back into the movie. Very quickly we realize that all the kids are watching this same animation while also enjoying their nice frozen treat. As Jared is noticing this, the ice cream man drives by and gives Jared a passing smile. Jared rides over to Elliot's house, but when he knocks on the door his mother comes out and tells him that Elliot is isn't feeling well. Soon after Jared prepares to leave when another person who hates Jared, a common theme so far in this movie, Sebastian tries to steal his bike away and when Jared refuses he becomes more aggressive. Until Elliot's mother comes back outside to confront the boys and it plays out pretty typically for how young kids deal with getting caught. Sebastian tries to play it off as if they were playing, Jared goes along with it presumably because he doesn't want to be seen as a snitch. I mean you already lost us the game there bucko, let's not give everyone another reason.
 
-![[Ice Cream Man-1791261684256.webp]]
+![[Ice Cream Man-1791261770710.webp]]
 
 Jared finally arrives home for family dinner and we see no other than Eli Roth, director, writer, and actor, playing Jared's dad, Marty. Anyways they have a pretty normal conversation, Lizzie talks about how she doesn't want to spend her summer working in her parents law firm, Jared mentions the weird ice cream man, and then Lizzie asks her mom, played by Karen Cliche, if she could use the car so she could participate in skip day. Their parents obviously giver some push back and ultimately tell her no and she storms off.
 
