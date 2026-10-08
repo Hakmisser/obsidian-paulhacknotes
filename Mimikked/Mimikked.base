@@ -1,14 +1,9 @@
 views:
-  - type: table
-    name: View
-    filters:
-      and:
-        - file.folder.startsWith("obsidian-paulhacknotes/Mimikked/Z-FUEL")
   - type: cards
     name: Card View
     filters:
       and:
-        - file.folder.startsWith("obsidian-paulhacknotes/Mimikked")
+        - file.folder == "obsidian-paulhacknotes/Mimikked/Z-FUEL"
     order:
       - file.name
     imageFit: contain
