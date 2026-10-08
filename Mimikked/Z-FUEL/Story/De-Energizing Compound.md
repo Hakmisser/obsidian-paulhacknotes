@@ -1,5 +1,5 @@
 ___
-The **De-Energizing Compound** is a proprietary mixture created and patented by [[Zeta Site]], originally developed as the active ingredient in Z-FUEL, a commercially marketed “reverse-energy” beverage designed to promote relaxation and reduce physical activity. Its publicly disclosed ingredients included melatonin, valerian root extract, L-theanine, and other undisclosed compounds.
+The **De-Energizing Compound** is a proprietary mixture created and patented by [[Zeta Site]], originally developed as the active ingredient in [[Z-FUEL, a commercially marketed “reverse-energy” beverage designed to promote relaxation and reduce physical activity. Its publicly disclosed ingredients included melatonin, valerian root extract, L-theanine, and other undisclosed compounds.
 
 ### Development Stages
 
