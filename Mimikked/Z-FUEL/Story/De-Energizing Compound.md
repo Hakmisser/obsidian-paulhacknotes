@@ -5,7 +5,7 @@ The **De-Energizing Compound** is a proprietary mixture created and patented by 
 
 Zeta Site's research into the compound was initially conducted through conventional commercial practices and controlled testing. However, early trials revealed that stronger formulations produced increasingly unusual effects beyond ordinary relaxation.
 
-As these effects became more pronounced, Zeta Site began classifying the compound's effects into separate De-Energization (DE) stages:
+As these effects became more pronounced, Zeta Site began developing the compound's effects into separate De-Energization (DE) stages:
 
 - **DE-1 — Sedation:** Increased relaxation and sleepiness.
 - **DE-2 — Motor Reduction:** Noticeable reduction in physical activity and responsiveness.
