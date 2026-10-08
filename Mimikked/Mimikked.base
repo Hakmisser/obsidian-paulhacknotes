@@ -8,4 +8,5 @@ views:
       - file.name
     image: note.cover
     imageFit: contain
-    imageAspectRatio: 1.3
+    imageAspectRatio: 1.8
+    cardSize: 230
