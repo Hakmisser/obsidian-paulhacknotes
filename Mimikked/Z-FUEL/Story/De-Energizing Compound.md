@@ -11,4 +11,10 @@ As these effects became more pronounced, Zeta Site began developing the compound
 
 - **DE-3** -
 
+
+|     |     |
+| --- | --- |
+|     |     |
+
+
 The development of DE-4 marked a turning point for Zeta Site. Rather than discontinuing development due to the increasingly dangerous effects, the company began treating the phenomenon as an opportunity for further research.
