@@ -13,4 +13,4 @@ As these effects became more pronounced, [[Zeta Site]] began developing the comp
 | DE-4         | Drastically reduced metabolic and physical activity while maintaining essential biological functions.                                                                                          |
 | DE-5         | Severe neurological impairment, restores basic motor activity and primitive survival responses. Subjects retain movement and stimulus response despite little to no higher cognitive function. |
 
-The development of DE-4 marked a turning point for Zeta Site. Rather than discontinuing development due to the increasingly dangerous effects, the company began treating the phenomenon as an opportunity for further research.
+The development of DE-4 marked a turning point for [[Zeta Site]]. Rather than discontinuing development due to the increasingly dangerous effects, the company began treating the phenomenon as an opportunity for further research.
