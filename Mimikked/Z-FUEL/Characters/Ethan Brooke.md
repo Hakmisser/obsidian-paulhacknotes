@@ -1,7 +1,7 @@
 ___
 Ethan Brooke is one of the first to undergo the third series of human trials for Zeta Site.
 
-
+During Ethan's 
 
 
 Ethan is put into a room and with a bed, chair, and other amenities. The trial, referenced as an 'Endurance Test,' aims to see how long the De-Energizing Compound would take to fully take effect over the subject. They release the agent into the room Ethan is staying in and analyze the results. The trial lasts most of the night. Ethan starts out being anxious becoming uncomfortable, before then losing track of time feeling that he's been there for less time than has passed. He then begins to feel more relaxed, limiting movement until he no longer is able to preform voluntary movements. However throughout the trial Ethan mentions his sister who is having a baby, and near the end of the trial Ethan, although no longer able to voluntarily move, asks about his sister, showing that the subjects of these trials are still human, that there is still something inside them and that they are not just husks.
