@@ -1,3 +1,1 @@
 ___
-## The Brunt Of It...
-Z-FUEL is a product by Zeta Site that acts as a 'reverse energy drink.' Using their patented 'De-Energizing Compound' Zeta Site markets their products as a wellness aid. However, Zeta Site's founder and CEO, [[Waylon Warner]], want to utilize the De-Energizing Compound to manipulate its consumers. Zeta Site uses the De-Energizing Compound to drain the energy of their consumers to the point where they no longer conduct 'unnecessary commands,' effectively turning them into mindless drones.
