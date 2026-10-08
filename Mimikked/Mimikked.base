@@ -8,5 +8,7 @@ views:
     name: Card View
     filters:
       and:
-        - file.folder.startsWith("obsidian-paulhacknotes/Mimikked/Z-FUEL")
+        - file.folder.startsWith("obsidian-paulhacknotes/Mimikked")
+    order:
+      - file.name
     imageFit: contain
