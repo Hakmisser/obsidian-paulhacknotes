@@ -1,2 +1,2 @@
 ___
-The De
+The De-Energizing Compound is a 
