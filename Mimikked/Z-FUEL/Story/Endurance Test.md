@@ -1,2 +1,2 @@
 ___
-The Endurance Test is a human subject trial conducted by Zeta Site during the third iteration of the De-Energizing Compound.
+The Endurance Test is a human subject trial conducted by Zeta Site during the third iteration of the De-Energizing Compound. The trial aims to measure how long after De-Energizing Compound is administered do subject
