@@ -1,4 +1,6 @@
 ___
-**Ethan Brooke** is one of the first to undergo human trials for the fourth iteration of the De-Energizing Compound for Zeta Site.
+**Ethan Brooke** is one of the first to undergo human trials for the fourth iteration of the De-Energizing Compound under Zeta Site.
 
-During the [[Endurance Test]] trial, Ethan was able to showcase a lingering effect of his humanity. Ethan near the beginning of the trial draws focus on his sister who he mentions is having a child. Near the end of the [[Endurance Test]] Ethan is left completely de-energized as a result of the trial and left as a husk similar to most other subjects, however Ethan asks about his sister's wellbeing, showcasing that there is still a part of him hidden within the husk.
+During the [Endurance Test](Endurance%20Test), Ethan exhibited an unusual retention of human cognition despite the progressive effects of de-energization. Near the beginning of the trial, Ethan mentions that his sister is expecting a child. By the conclusion of the trial, Ethan is left completely de-energized and physically comparable to other affected subjects.
+
+Despite his condition, Ethan retains enough cognitive function to inquire about his sister's wellbeing, suggesting that some aspect of his former personality and emotional awareness remains within the otherwise de-energized subject.
