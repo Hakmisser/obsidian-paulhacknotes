@@ -7,3 +7,4 @@ views:
     order:
       - file.name
     imageFit: contain
+    image: file.file
