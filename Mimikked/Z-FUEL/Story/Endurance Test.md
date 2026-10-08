@@ -1,2 +1,2 @@
 ___
-The **Endurance Test** is a human subject trial conducted by Zeta Site during the fourth iteration of the De-Energizing Compound. The trial measures the onset and progression of the compound's effects, specifically how long it takes for subjects to begin exhibiting signs of de-energization following administration.
+The **Endurance Test** is a human subject trial conducted by Zeta Site during the fourth iteration of the [[De-Energizing Compound]]. The trial measures the onset and progression of the compound's effects, specifically how long it takes for subjects to begin exhibiting signs of de-energization following administration.
