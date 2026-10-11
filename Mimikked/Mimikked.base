@@ -7,7 +7,6 @@ views:
     order:
       - file.name
       - tags
-      - file.fullname
     image: note.cover
     imageFit: contain
     imageAspectRatio: 1.8
