@@ -1,2 +1,2 @@
 ___
-**Z-FUEL** is a commercially marketed “reverse-energy” beverage designed to promote relaxation and reduce physical activity. In
+**Z-FUEL** is a commercially marketed “reverse-energy” beverage designed to promote relaxation and reduce physical activity. Introduced in XXXX by [[Zeta Site]] 
