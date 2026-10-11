@@ -1,2 +1,2 @@
 ___
-**Zeta Site** is a beverage company that specializes in manufacturing wellness and relaxation products such as their reverse-energy drinks, known as [[obsidian-paulhacknotes/Mimikked/Z-FUEL/Story/Z-FUEL|Z-FUEL]]. Founded in 1988 by [[Waylon Warner]].
+**Zeta Site** is a beverage company that specializes in manufacturing wellness and relaxation products such as their reverse-energy drinks, known as [[obsidian-paulhacknotes/Mimikked/Z-FUEL/Story/Z-FUEL|Z-FUEL]]. Founded in 1986 by [[Waylon Warner]].
