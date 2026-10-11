@@ -1,2 +1,2 @@
 ___
-**Zeta Site** is a beverage 
+**Zeta Site** is an American 
