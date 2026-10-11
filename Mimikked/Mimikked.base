@@ -6,6 +6,8 @@ views:
         - file.folder == "obsidian-paulhacknotes/Mimikked/Z-FUEL"
     order:
       - file.name
+      - tags
+      - file.fullname
     image: note.cover
     imageFit: contain
     imageAspectRatio: 1.8
