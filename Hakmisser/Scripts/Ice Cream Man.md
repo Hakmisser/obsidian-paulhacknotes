@@ -64,6 +64,8 @@ Jared rides to school on his bike, and when he get's to school he notices that a
 We get to class and all the kids are just sitting at their desks with blank stares. Which of course leaves the teachers confused to all hell. Jared finally walks into class and is asked by the teacher to go check the nurse's office for his friend Elliot. While on the way Jared spots Mia doing... something in the corner. Originally I was thinking she was crying but when she turns to interact with Jared that doesn't seem to be the case. Anyways, Jared asks if she's okay, Mia gets annoyed because everyone still hates Jared. 
 
 ![[Ice Cream Man-1791795991840.webp]]
+> [!quote]
+> "Y'all shouldn't be cutting class... that's my job."
 
 
 Then we get introduced to a new character, Tommy. There's not really much to say about it him right now, this is his first appearance and all he says is some typical corny ass line that gives the viewers the indication that he's supposed to be some type of class clown.
