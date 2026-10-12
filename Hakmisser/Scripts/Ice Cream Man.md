@@ -57,5 +57,7 @@ Now here's where we finally get to the brunt of the movie. Jared wakes up in the
 
 That whole debacle happens and it's now the morning, The children continue to do their thing (just assume every scene from now on includes children doing 'bad' things). Jared's parents come out ready to go to work and notice some strange things happening around, but they think nothing of it and drive off to go to work in a town full of murderous children.
 
+Jared rides to school on his bike noticing that most 
+
 
 
