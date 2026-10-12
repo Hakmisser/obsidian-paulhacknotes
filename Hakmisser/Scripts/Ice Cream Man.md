@@ -68,4 +68,3 @@ We get to class and all the kids are just sitting at their desks with blank star
 > "Y'all shouldn't be cutting class... that's my job!" - Tommy
 
 Then we get introduced to a new character, Tommy. There's not really much to say about it him right now, this is his first appearance and all he says is some typical corny ass line that gives the viewers the indication that he's supposed to be some type of class clown.
-
