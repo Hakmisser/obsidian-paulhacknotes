@@ -47,11 +47,9 @@ Did you catch it? Yeah this is one of those movies that decided to get ahead of 
 
 Now that that rant is over let's get back into the movie. Very quickly we realize that all the kids are watching this same animation while also enjoying their nice frozen treat. As Jared is noticing this, the ice cream man drives by and gives Jared a passing smile. Jared rides over to Elliot's house, but when he knocks on the door his mother comes out and tells him that Elliot is isn't feeling well. Soon after Jared prepares to leave when another person who hates Jared, a common theme so far in this movie, Sebastian tries to steal his bike away and when Jared refuses he becomes more aggressive. Until Elliot's mother comes back outside to confront the boys and it plays out pretty typically for how young kids deal with getting caught. Sebastian tries to play it off as if they were playing, Jared goes along with it presumably because he doesn't want to be seen as a snitch. I mean you already lost us the game there bucko, let's not give everyone another reason.
 
-![[Ice Cream Man-1791261770710.webp]]
-
 Jared finally arrives home for family dinner and we see no other than Eli Roth, director, writer, and actor, playing Jared's dad, Marty. Anyways they have a pretty normal conversation, Lizzie talks about how she doesn't want to spend her summer working in her parents law firm, Jared mentions the weird ice cream man, and then Lizzie asks her mom, played by Karen Cliche, if she could use the car so she could participate in skip day. Their parents obviously giver some push back and ultimately tell her no and she storms off.
 
-
+![[Ice Cream Man-1791261770710.webp]]
 
 Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the ice cream man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways. These scenes pretty much set the precedent for the rest of the movie, kids being not so kind and friendly and rather cruel and ruthless to adults, and not in the normal saying exactly what their thinking and pointing out your insecurities kind of way.
 
@@ -59,8 +57,8 @@ Now here's where we finally get to the brunt of the movie. Jared wakes up in the
 
 That whole debacle happens and it's now the morning, The children continue to do their thing (just assume every scene from now on includes children doing 'bad' things). Jared's parents come out ready to go to work and notice some strange things happening around, but they think nothing of it and drive off to go to work in a town full of murderous children.
 
-![[Ice Cream Man-1791793584459.webp]]
-
 Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the ice cream man's delicious sweet treats (that just sounds wrong) like Mia, we'll get to know more about her later, but, like most people we've met so far they don't like Jared.
+
+![[Ice Cream Man-1791793584459.webp]]
 
 We get to class and all the kids are just sitting at their desks with blank stares. Which of course leaves the teachers confused to all hell. Jared finally walks into class and is asked by the teacher to go check the nurse's office for his friend Elliot. While on the way Jared spots Mia doing... something in the corner. Originally I was thinking she was crying but when she turns to interact with Jared that doesn't seem to be the case. Anyways, Jared asks if she's okay, Mia gets annoyed because everyone still hates Jared. Then we get introduced to a new character, Tommy. There's not really much to say about it him right now, this is his first appearance and all he says is some typical corny ass line that gives the viewers the indication that he's supposed to be some type of class clown.
