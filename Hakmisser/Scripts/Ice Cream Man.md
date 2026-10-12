@@ -61,5 +61,5 @@ That whole debacle happens and it's now the morning, The children continue to do
 
 Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the ice cream man's delicious sweet treats (that just sounds wrong) like Mia, we'll get to know more about her later, but, like most people we've met so far they don't like Jared.
 
-We get to class and all the kids are just sitting at their desks with blank stares. Which of course leaves the teachers confused to all hell. Jared finally walks into class and is asked by the teacher to go check the 
+We get to class and all the kids are just sitting at their desks with blank stares. Which of course leaves the teachers confused to all hell. Jared finally walks into class and is asked by the teacher to go check the nurse's office for his friend Elliot. While on the way 
 
