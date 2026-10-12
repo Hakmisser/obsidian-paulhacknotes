@@ -59,4 +59,4 @@ That whole debacle happens and it's now the morning, The children continue to do
 
 ![[Ice Cream Man-1791793584459.webp]]
 
-Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the ice cream man's delicious sweet treats (that just sounds wrong) but, like most people we've met so far they don't like Jared.
+Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the ice cream man's delicious sweet treats (that just sounds wrong) like Mia, we'll get to know more about her laterbut, like most people we've met so far they don't like Jared.
