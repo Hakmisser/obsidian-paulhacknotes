@@ -53,8 +53,3 @@ Jared finally arrives home for family dinner and we see no other than Eli Roth, 
 
 Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the ice cream man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways (again you can tell what rating they were aiming for). These scenes pretty much set the precedent for the rest of the movie, kids being not so kind and friendly and rather cruel and ruthless to adults, and not in the normal saying exactly what their thinking and pointing out your insecurities kind of way.
 
-###### Works Cited
-___
-“Ice Cream Man.” _YouTube_, www.youtube.com/watch?v=Hl5zl7NcZiA.
-
-Roth, Eli, and Noah Belson. _Ice Cream Man_. The Horror Section and MCT Studios, 2026, https://www.imdb.com/title/tt36893729/.
