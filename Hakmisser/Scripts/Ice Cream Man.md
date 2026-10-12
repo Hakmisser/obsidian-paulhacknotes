@@ -55,5 +55,5 @@ Jared finally arrives home for family dinner and we see no other than Eli Roth, 
 
 Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the ice cream man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways. These scenes pretty much set the precedent for the rest of the movie, kids being not so kind and friendly and rather cruel and ruthless to adults, and not in the normal saying exactly what their thinking and pointing out your insecurities kind of way.
 
-That whole debacle happens and it's now the morning, The children continue to do their thing (just assume every scene from now on includes children doing 'bad' things). 
+That whole debacle happens and it's now the morning, The children continue to do their thing (just assume every scene from now on includes children doing 'bad' things). Jared's parents come out ready to go to work and notice some strange things happening around 
 
