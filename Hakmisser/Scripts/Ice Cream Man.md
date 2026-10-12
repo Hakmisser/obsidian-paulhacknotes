@@ -71,4 +71,4 @@ Then we get introduced to a new character, Tommy. There's not really much to say
 
 Jared continues to go towards the nurse's office and encounters a lady at the bottom of the stairs on her phone distressed. Probably due to what the children were up to last night.
 
-We then cut to Tommy showing up late to class and showcasing that pretty much everyone in the school is infected by the ice crea
+We then cut to Tommy showing up late to class and showcasing that pretty much everyone in the school is infected by the ice cream man. Jared also returns to his class and shortly upon entering we hear a fami
