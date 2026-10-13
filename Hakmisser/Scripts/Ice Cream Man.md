@@ -74,4 +74,4 @@ We then cut to Tommy showing up late to class and showcasing that pretty much ev
 
 ![[image-19.webp]]
 
-Yadda yadda yadda, the rampage continues and Jared, Mia, and Tommy head back inside the school to hide. Mia gets separated from the group and gets noticed by some of the kids and Jared and Tommy try to save her. An interesting tidbit 
+Yadda yadda yadda, the rampage continues while Jared, Mia, and Tommy head back inside the school to hide. Mia gets separated from the group and gets noticed by some of the kids and Jared and Tommy try to save her. An interesting 
