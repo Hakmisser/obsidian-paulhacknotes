@@ -107,4 +107,4 @@ The gang continues to make their way through the playground when suddenly Mia ge
 > [!quote]
 > "I'm a 12 year old girl, of course I'm gonna make myself vomit" - Mia
 
-Remember what I said earlier about the audience? The group continues and finally make their way out of the playground
+Remember what I said earlier about the audience? The group continues and finally make their way out of the playground, well most of them.
