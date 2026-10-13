@@ -90,4 +90,4 @@ They then decide to see if they can call anyone to come help them out of their s
 
 ![[Ice Cream Man-1791886200430.webp]]
 
-Turns out while the ice cream turns children into immortal killing machines for teens, and I'd assume adults too but that's never really confirmed, it paralyzes them. So Jared tells Lizzie that she has to find a 
+Turns out while the ice cream turns children into immortal killing machines for teens, and I'd assume adults too but that's never really confirmed, it paralyzes them. So Jared tells Lizzie that she has to find a way to make herself throw up.
