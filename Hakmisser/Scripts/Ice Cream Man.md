@@ -80,4 +80,4 @@ Any who, Mia is trapped and the kids start pouring some flammable substance on t
 
 ![[Ice Cream Man-1791883610090.webp]]
 
-Yeah this doesn't go well. The cop 
+Yeah this doesn't go well. The cop basically joins the other adults
