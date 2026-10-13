@@ -96,4 +96,4 @@ Lizzie gets unparalyzed and begins wandering around the town looking for help an
 
 ![[Ice Cream Man-1791902462552.webp]]
 
-Meanwhile, Jared and the gang are being surrounded by the sugar fiends. 
+Meanwhile, Jared and the gang are being surrounded by the sugar fiends. They find a way to escape and begin moving towards the 
