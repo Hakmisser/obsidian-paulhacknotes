@@ -84,4 +84,6 @@ Yeah this doesn't go well. The cop basically joins the other adults, but hey don
 
 ![[Ice Cream Man-1791884030607.webp]]
 
-Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the ice cream man's zombie creatures. They then decide to see if they can call anyone to come help them out of their situation, but unfortunately no-one picks up, most likely because of the rampage thing. But then Jared decides to call his sister Lizzie who does answer.
+Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the ice cream man's zombie creatures. Also in this scene they mention that Mia ate some of th
+
+They then decide to see if they can call anyone to come help them out of their situation, but unfortunately no-one picks up, most likely because of the rampage thing. But then Jared decides to call his sister Lizzie who does answer.
