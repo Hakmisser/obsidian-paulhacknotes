@@ -82,3 +82,6 @@ Any who, Mia is trapped and the kids start pouring some flammable substance on t
 
 Yeah this doesn't go well. The cop basically joins the other adults, but hey don't worry there's another person coming to help! A firefighter-
 
+![[Ice Cream Man-1791884030607.webp]]
+
+Yeah he doesn't last long either.
