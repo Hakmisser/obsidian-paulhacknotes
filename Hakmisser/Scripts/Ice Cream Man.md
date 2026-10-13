@@ -74,4 +74,4 @@ We then cut to Tommy showing up late to class and showcasing that pretty much ev
 
 ![[image-19.webp]]
 
-Yadda yadda yadda, the rampage continues and Jared, Mia, and Tommy head back inside the school 
+Yadda yadda yadda, the rampage continues and Jared, Mia, and Tommy head back inside the school to hide.
