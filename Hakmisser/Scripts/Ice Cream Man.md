@@ -84,7 +84,7 @@ Yeah this doesn't go well. The cop basically joins the other adults, but hey don
 
 ![[Ice Cream Man-1791884030607.webp]]
 
-Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the ice cream man's zombie creatures. Also in this scene they mention that Mia ate some of the ice cream and apparently what she was doing earlier in the random corner in the hallway was throwing up. Which she also has this to say about it:
+Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the ice cream man's zombie creatures. Also in this scene they mention that Mia ate some of the ice cream and apparently what she was doing earlier in the random corner in the hallway was throwing up, so at le
 
 
 
