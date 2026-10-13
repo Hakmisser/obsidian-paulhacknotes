@@ -73,3 +73,4 @@ Jared continues to go towards the nurse's office and encounters a lady at the bo
 We then cut to Tommy showing up late to class and showcasing that pretty much everyone in the school is infected by the ice cream man. Jared also returns to his class and shortly upon entering we hear a familiar jingle coming from the ice cream truck that is now making its rounds through the school, which then makes all of the sleeper agents in the school wake up and start walking away to go see the ice cream man. Of course then shortly after the kids get their fill of that delicious sugary treat they continue to work on their rampage from last night again. Also apparently this ice cream that they're eating that's turning them all savage also makes them immortal? Because one of the kids uh... takes some fall damage and after being fed some of the ice cream he gets right back up, ready for round two.
 
 ![[image-19.webp]]
+
