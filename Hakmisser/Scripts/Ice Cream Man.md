@@ -108,3 +108,6 @@ The gang continues to make their way through the playground when suddenly Mia ge
 > "I'm a 12 year old girl, of course I'm gonna make myself vomit" - Mia
 
 Remember what I said earlier about the audience? The group continues and finally make their way out of the playground, well most of them.
+
+![[Ice Cream Man-1791904217990.webp]]
+
