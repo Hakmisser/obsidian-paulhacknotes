@@ -74,4 +74,4 @@ We then cut to Tommy showing up late to class and showcasing that pretty much ev
 
 ![[image-19.webp]]
 
-Yadda yadda yadda, the rampage continues while Jared, Mia, and Tommy head back inside the school to hide. Mia gets separated from the group and gets noticed by some of the kids and Jared and Tommy try to save her. During this sequence there's an interesting part of the set that actually gets used as part of one of the kills, and that part is a fire axe. Schools don't have fire axes, especially this out in the open, because kids.
+Yadda yadda yadda, the rampage continues while Jared, Mia, and Tommy head back inside the school to hide. Mia gets separated from the group and gets noticed by some of the kids and Jared and Tommy try to save her. During this sequence there's an interesting part of the set that actually gets used as part of one of the kills, and that part is a fire axe. Schools don't have fire axes, especially this out in the open and accessible, because you know kids.
