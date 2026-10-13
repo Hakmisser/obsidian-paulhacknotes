@@ -78,3 +78,4 @@ Yadda yadda yadda, the rampage continues while Jared, Mia, and Tommy head back i
 
 Any who, Mia is trapped and the kids start pouring some flammable substance on the floor that seeps under the door as they plan to set the room on fire. Jared and Tommy make a distraction by pushing a mop bucket into another room which attracts the hoard. Eventually the group makes it out and reconvenes in what I think is a storage room which has a window that allows them to see what's going on outside, and what they see is the solution to all their problems... the cops.
 
+![[Ice Cream Man-1791883610090.webp]]
