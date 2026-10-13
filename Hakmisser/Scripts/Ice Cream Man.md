@@ -104,3 +104,6 @@ By the way while I was looking at some interviews and behind the scenes for this
 The gang continues to make their way through the playground when suddenly Mia gets attacked by one of the kids shoving an ice cream in her mouth until she gets saved by no other than Sebastian. Oh yeah everybody's making a comeback. Sebastian saves Mia and she immediately throws up the force fed ice cream which leads to this interaction:
 
 ![[Ice Cream Man-1791903766833.webp]]
+> [!quote]
+> "I'm a 12 year old girl, of course I'm gonna make myself vomit" - Mia
+
