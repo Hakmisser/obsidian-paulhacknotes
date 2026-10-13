@@ -101,4 +101,6 @@ Meanwhile, Jared and the gang are being surrounded by the sugar fiends. They fin
 
 By the way while I was looking at some interviews and behind the scenes for this movie writer and director, Eli Roth, compares this part of the film where the group is trying to escape to the opening sequence of Saving Private Ryan where they are storming the beach of Normandy. How fucking dare you.
 
-The gang continues to make their way through the playground when suddenly Mia gets attacked by one of the kids shoving an ice cream in her mouth until she gets saved by no other than Sebastian. Oh yeah everybody's making a comeback. Sebastian saves Mia and she immedietly throws up the force fed ice crea, 
+The gang continues to make their way through the playground when suddenly Mia gets attacked by one of the kids shoving an ice cream in her mouth until she gets saved by no other than Sebastian. Oh yeah everybody's making a comeback. Sebastian saves Mia and she immediately throws up the force fed ice cream which leads to this interaction:
+
+![[Ice Cream Man-1791903766833.webp]]
