@@ -84,4 +84,4 @@ Yeah this doesn't go well. The cop basically joins the other adults, but hey don
 
 ![[Ice Cream Man-1791884030607.webp]]
 
-Yeah he doesn't last long either. Back to the group, they decide to see if they can call anyone to come help them out of their situation, 
+Yeah he doesn't last long either. Back to the group, they decide to see if they can call anyone to come help them out of their situation, but unfortunately no-one picks up, most likely because of the rampage. But then Jared decides to call his sister Lizzie.
