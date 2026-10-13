@@ -101,3 +101,4 @@ Meanwhile, Jared and the gang are being surrounded by the sugar fiends. They fin
 
 By the way while I was looking at some interviews and behind the scenes for this movie writer and director, Eli Roth, compares this part of the film where the group is trying to escape to the opening sequence of Saving Private Ryan where they are storming the beach of Normandy. How fucking dare you.
 
+The gang continues to make their way through the playground 
