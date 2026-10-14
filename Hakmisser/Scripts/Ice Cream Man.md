@@ -116,3 +116,7 @@ Goodbye Sebastian, you will be missed. Rewinding a bit the way Sebastian gets ca
 Also I just have to show you this:
 
 ![[image-20.webp]]
+> [!note]
+> Man yells "So long suckers!" then immediately get his head chopped off
+
+This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy 
