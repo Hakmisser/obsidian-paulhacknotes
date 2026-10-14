@@ -119,4 +119,5 @@ Also I just have to show you this:
 > [!note]
 > Man yells "So long suckers!" then immediately get his head chopped off
 
-This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy 
+This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy shows up anywhere else except this scene too so this is just so out of nowhere I actually kinda love it.
+
