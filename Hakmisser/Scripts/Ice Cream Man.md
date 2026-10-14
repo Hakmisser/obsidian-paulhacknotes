@@ -51,13 +51,13 @@ Jared finally arrives home for family dinner and we see no other than Eli Roth, 
 
 ![[Ice Cream Man-1791261770710.webp]]
 
-Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the Ice Cream Man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange ice cream man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways. These scenes pretty much set the precedent for the rest of the movie, kids being not so kind and friendly and rather cruel and ruthless to adults, and not in the normal saying exactly what their thinking and pointing out your insecurities kind of way.
+Now here's where we finally get to the brunt of the movie. Jared wakes up in the middle of the night to find that the Ice Cream Man is making rounds across the town playing his signature tune. As this is happening we can see that all the other children are also waking up but instead of simply being confused by the strange Ice Cream Man blaring music in the middle of the night, they begin to activate like sleeper agents and start boarding their parents on the one way train to the afterlife, in some pretty brutal and gore intensive ways. These scenes pretty much set the precedent for the rest of the movie, kids being not so kind and friendly and rather cruel and ruthless to adults, and not in the normal saying exactly what their thinking and pointing out your insecurities kind of way.
 
 ![[Ice Cream Man-1791792806030.webp]]
 
 That whole debacle happens and it's now the morning, The children continue to do their thing (just assume every scene from now on includes children doing 'bad' things). Jared's parents come out ready to go to work and notice some strange things happening around, but they think nothing of it and drive off to go to work in a town full of murderous children.
 
-Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the ice cream man's delicious sweet treats (that just sounds wrong) like Mia, we'll get to know more about her later, but, like most people we've met so far they don't like Jared.
+Jared rides to school on his bike, and when he get's to school he notices that almost no one ended up showing up and the people who did are acting really strange. Wow seems like everyone got hit with a massive case of senioritis...(Dude people are dead). There are still some kids who aren't affected by the Ice Cream Man's delicious sweet treats (that just sounds wrong) like Mia, we'll get to know more about her later, but, like most people we've met so far they don't like Jared.
 
 ![[Ice Cream Man-1791793584459.webp]]
 
@@ -71,7 +71,7 @@ Then we get introduced to a new character, Tommy. There's not really much to say
 
 Jared continues to go towards the nurse's office and encounters a lady at the bottom of the stairs on her phone distressed. Probably due to what the children were up to last night.
 
-We then cut to Tommy showing up late to class and showcasing that pretty much everyone in the school is infected by the ice cream man. Jared also returns to his class and shortly upon entering we hear a familiar jingle coming from the ice cream truck that is now making its rounds through the school, which then makes all of the sleeper agents in the school wake up and start walking away to go see the ice cream man. Of course then shortly after the kids get their fill of that delicious sugary treat they continue to work on their rampage from last night again. Also apparently this ice cream that they're eating that's turning them all savage also makes them immortal? Because one of the kids uh... takes some fall damage and after being fed some of the ice cream he gets right back up, ready for round two.
+We then cut to Tommy showing up late to class and showcasing that pretty much everyone in the school is infected by the Ice Cream Man. Jared also returns to his class and shortly upon entering we hear a familiar jingle coming from the ice cream truck that is now making its rounds through the school, which then makes all of the sleeper agents in the school wake up and start walking away to go see the Ice Cream Man. Of course then shortly after the kids get their fill of that delicious sugary treat they continue to work on their rampage from last night again. Also apparently this ice cream that they're eating that's turning them all savage also makes them immortal? Because one of the kids uh... takes some fall damage and after being fed some of the ice cream he gets right back up, ready for round two.
 
 ![[image-19.webp]]
 
@@ -85,7 +85,7 @@ Yeah this doesn't go well. The cop basically joins the other adults, but hey don
 
 ![[Ice Cream Man-1791884030607.webp]]
 
-Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the ice cream man's zombie creatures. Also in this scene they mention that Mia ate some of the ice cream and apparently what she was doing earlier in the random corner in the hallway was throwing up, so at least now we know.
+Yeah he doesn't last long either. Back to the group, they realize that the kids are not trying to hurt them but instead convert them into becoming one of the Ice Cream Man's zombie creatures. Also in this scene they mention that Mia ate some of the ice cream and apparently what she was doing earlier in the random corner in the hallway was throwing up, so at least now we know.
 
 They then decide to see if they can call anyone to come help them out of their situation, but unfortunately no-one picks up, most likely because of the rampage thing. But then Jared decides to call his sister Lizzie who does answer, but...
 
