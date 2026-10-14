@@ -111,7 +111,7 @@ Remember what I said earlier about the audience? The group continues and finally
 
 ![[Ice Cream Man-1791904217990.webp]]
 
-Goodbye Sebastian, you will be missed. Rewinding a bit the way Sebastian gets caught, he was kinda asking for it. He gets his chain hanging from his pants stuck in the fence but not in a way where it is actively preventing him from trying to climb over. Hell I don't think it even would've prevented him from climbing over the fence at all. So Sebastian really just gave up.
+Goodbye Sebastian, you will be missed. Rewinding a bit the way Sebastian gets caught, he was kind of asking for it. He gets his chain hanging from his pants stuck in the fence but not in a way where it is actively preventing him from trying to climb over. Hell I don't think it even would've prevented him from climbing over the fence at all. So Sebastian really just gave up.
 
 Also I just have to show you this:
 
@@ -119,5 +119,4 @@ Also I just have to show you this:
 > [!note]
 > Man yells "So long suckers!" then immediately get his head chopped off
 
-This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy shows up anywhere else except this scene too so this is just so out of nowhere I actually kinda love it.
-
+This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy shows up anywhere else except this scene too so this is just so out of nowhere I actually kind of love it.
