@@ -120,3 +120,5 @@ Also I just have to show you this:
 > Man yells "So long suckers!" then immediately get his head chopped off
 
 This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy shows up anywhere else except this scene too so this is just so out of nowhere I actually kind of love it.
+
+Jared and the gang eventually end up making their way to the church and head down to the basement
