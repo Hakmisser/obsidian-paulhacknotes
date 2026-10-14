@@ -113,3 +113,5 @@ Remember what I said earlier about the audience? The group continues and finally
 
 Goodbye Sebastian, you will be missed. Rewinding a bit the way Sebastian gets caught, he was kinda asking for it. He gets his chain hanging from his pants stuck in the fence but not in a way where it is actively preventing him from trying to climb over. Hell I don't think it even would've prevented him from climbing over the fence at all. So Sebastian really just gave up.
 
+
+
