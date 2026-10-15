@@ -144,3 +144,5 @@ The Ice Cream Man and army eventually find out where they're hiding and the prie
 ![[Ice Cream Man-1792093574397.webp]]
 > [!quote]
 > "Looks like Rodger got his bell rung." - Chris
+
+The ga
