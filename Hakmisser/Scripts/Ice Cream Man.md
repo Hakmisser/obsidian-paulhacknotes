@@ -137,4 +137,4 @@ The priest then goes on to give the kids a plan on how to defeat the Ice Cream M
 > [!quote]
 > "You kill the siren, you cut the necromancer's head off, he'll be wearing a cermonial cloak, do not remove the hood, find the ice cream man, remove the hood, make the Ice Cream Man look into the necromancer's eyes, that will kill him." - The Priest
 
-Also if you haven't noticed already that is the Benjamin Byron Davis from the hit show Drake and Josh where he play 
+Also if you haven't noticed already that is the Benjamin Byron Davis from the hit show Drake and Josh where he plays, the uncredited, Jerk in Line. Oh yeah and he's also Dutch from Red Dead Redemption II but you w
