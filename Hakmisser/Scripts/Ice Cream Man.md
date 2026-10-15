@@ -133,3 +133,5 @@ So, first you absolutely fumble our last baseball game, and then your family put
 
 The priest then goes on to give the kids a plan on how to defeat the Ice Cream Man, which I'll just let him explain:
 
+> [!quote]
+> "You kill the siren, you cut the necromancer's head off, he'll be wearing a cermonial cloak, do not remove the hood, find the ice cream man, remove the hood, make the Ice Cream Man look into the necromancer's eyes, that will kill him." - The Priest
