@@ -131,4 +131,5 @@ The story the priest tells us is that the Ice Cream man used to be a man by the 
 
 So, first you absolutely fumble our last baseball game, and then your family put a generational curse on the town. Jared c'mon man what the fu-
 
-The priest then goes on to give the kids a plan on how to defeat the Ice Cream Man
+The priest then goes on to give the kids a plan on how to defeat the Ice Cream Man, which I'll just let him explain:
+
