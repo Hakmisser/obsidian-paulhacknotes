@@ -121,4 +121,4 @@ Also I just have to show you this:
 
 This scene serves no purpose but I think it is the best source of comedy in this film. I don't think this guy shows up anywhere else except this scene too so this is just so out of nowhere I actually kind of love it.
 
-Jared and the gang eventually end up making their way to the church and head down to the basement where they find a walk in freezer and the source of the Ice Cream Man's ice cream supply (say that ten times fast). Then as they're investigating who else but the Ice Cream Man himself comes looking for them. So the gang decides to hide in the walk in. 
+Jared and the gang eventually end up making their way to the church and head down to the basement where they find a walk in freezer and the source of the Ice Cream Man's ice cream supply (say that ten times fast). Then as they're investigating who else but the Ice Cream Man himself comes looking for them. So the gang decides to hide in the walk in. What they find in the walk-in, or should I say who, it's our heavenly father. They find a priest hiding inside the walk-in and
