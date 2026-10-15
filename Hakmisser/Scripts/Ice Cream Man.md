@@ -129,4 +129,5 @@ The story the priest tells us is that the Ice Cream man used to be a man by the 
 
 ![[Ice Cream Man-1792092365435.webp]]
 
-So, first you absolutely fumble our last 
+So, first you absolutely fumble our last baseball game, and then your family put a generational curse on the town. Jared c'mon man what the fu-
+
