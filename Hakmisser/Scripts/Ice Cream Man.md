@@ -139,4 +139,4 @@ The priest then goes on to give the kids a plan on how to defeat the Ice Cream M
 
 Also if you haven't noticed already that is the Benjamin Byron Davis from the hit show Drake and Josh where he plays, the uncredited, Jerk in Line. Oh yeah and he's also Dutch from Red Dead Redemption II but you probably wouldn't know him from that.
 
-The Ice Cream Man and army eventually find out where they're hiding and the priest sacrifices himself to save the kids. They make it out of the church where they meet up with Lizzie and Chris. Which I didn't mention this scene
+The Ice Cream Man and army eventually find out where they're hiding and the priest sacrifices himself to save the kids. They make it out of the church where they meet up with Lizzie and Chris. Which I didn't mention this scene earlier but Chris basically holds Lizzie hostage by not saving her from the murderous rampaging children until she agreed to go on a date with him. 
