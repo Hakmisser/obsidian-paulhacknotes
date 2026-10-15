@@ -145,4 +145,4 @@ The Ice Cream Man and army eventually find out where they're hiding and the prie
 > [!quote]
 > "Looks like Rodger got his bell rung." - Chris
 
-The gang, now with Lizzie and Chris, pick up some tools from Rodger's shop and start headed over towards the cemetery to dig up some graves. When they arrive they are greeted by 
+The gang, now with Lizzie and Chris, pick up some tools from Rodger's shop and start headed over towards the cemetery to dig up some graves. When they arrive they are greeted by the Ice Cream Man and his army of kids ready to stop them.
