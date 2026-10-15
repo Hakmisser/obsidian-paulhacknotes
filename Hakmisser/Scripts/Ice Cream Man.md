@@ -133,5 +133,8 @@ So, first you absolutely fumble our last baseball game, and then your family put
 
 The priest then goes on to give the kids a plan on how to defeat the Ice Cream Man, which I'll just let him explain:
 
+![[Ice Cream Man-1792092984639.webp]]
 > [!quote]
 > "You kill the siren, you cut the necromancer's head off, he'll be wearing a cermonial cloak, do not remove the hood, find the ice cream man, remove the hood, make the Ice Cream Man look into the necromancer's eyes, that will kill him." - The Priest
+
+Also if you haven't noticed already that is the Benjamin Byron Davis from the hit show Drake and Josh where he play 
