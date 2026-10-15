@@ -125,3 +125,4 @@ Jared and the gang eventually end up making their way to the church and head dow
 
 ![[Ice Cream Man-1792091005824.webp]]
 
+The story the priest tells us is that the Ice Cream man used to be a man by the name of Jonathan Smilee
