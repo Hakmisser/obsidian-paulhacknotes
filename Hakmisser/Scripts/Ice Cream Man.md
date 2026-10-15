@@ -141,3 +141,6 @@ Also if you haven't noticed already that is the Benjamin Byron Davis from the hi
 
 The Ice Cream Man and army eventually find out where they're hiding and the priest sacrifices himself to save the kids. They make it out of the church where they meet up with Lizzie and Chris. Which I didn't mention this scene earlier but Chris basically holds Lizzie hostage by not saving her from the murderous rampaging children until she agreed to go on a date with him, and they say chivalry is dead. They also see the old shopkeeper, Rodger, sitting dead in front of his store and Chris is just so fucking insensitive.
 
+![[Ice Cream Man-1792093574397.webp]]
+> [!quote]
+> "Looks like Rodger got his bell rung." - Chris
