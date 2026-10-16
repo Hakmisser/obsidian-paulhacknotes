@@ -182,3 +182,4 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 
 > [!quote] IGN | 4/10: Bad
 >"Eli Roth’s Ice Cream Man is an empty meal of a movie and lacks the brains to be anything more than a pale imitation of other far better horror movies that have come before it." - **Chase Hutchinson**
+
