@@ -186,4 +186,6 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 Now I can spout out reviews left, right, and center and it very well may mean nothing to you. Critics have been very well known to go against public opinion (I'm look at you IGN), I'm very aware of that. But are you really gonna not believe me after I voluntarily tortured myself for days on end? Not cool bro.
 
 > [!tldr]
->AI bad, Story 
+>AI bad, story bad, much gore
+
+
