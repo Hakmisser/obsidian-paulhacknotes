@@ -169,4 +169,4 @@ And in a full circle moment, we see the ice cream truck along with all the kids 
 
 The D O Double G? Yeah at first I thought it may have been an AI generated song but no, as far as I know this is an actual song Snoop Dogg did for this movie, so we know where the budget went. Also there is an end credit where that random guy on the segway, remember him, yeah he reappears to cross the bridge along with the rest of them, decapitated and all. So, no head? Unfortunately because of that I don't think I can show it so you're gonna have to just trust me bro.
 
-And that was the Ice Cream Man.
+And that was the Ice Cream Man. Trust me I
