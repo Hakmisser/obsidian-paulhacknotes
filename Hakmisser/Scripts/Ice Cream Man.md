@@ -181,4 +181,4 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 > "Ice Cream Man plays like it's trying to shock us without any of the filmmaking tools to achieve that result. It's a fairly toothless, uninspired experience..." - **Senior Editor of Reviews & Prestige Content, Alex Harrison**
 
 > [!quote] IGN | 4/10: Bad
-> 
+>"Eli Roth’s Ice Cream Man is an empty meal of a movie and lacks the brains to be anything more than a pale imitation of other far better horror movies that have come before it." - ****
