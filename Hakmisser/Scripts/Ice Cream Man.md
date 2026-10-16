@@ -171,4 +171,4 @@ The D O Double G? Yeah at first I thought it may have been an AI generated song 
 
 And that was the Ice Cream Man. Trust me I've wasted more time than you on this movie. I've watched this movie so many times making this video I've started getting PTSD every time I walk down the freezer isle.
 
-Watching this movie was like watching paint dry, finishing, realizing you painted it the wrong shade, and then dropping your ice cream cone into the paint bucket cause the excess paint in the bucket to spill onto the carpet.
+Watching this movie was like watching paint dry, finishing, realizing you painted it the wrong shade, and then dropping your ice cream cone into the paint bucket causing the excess paint in the bucket to spill onto the carpet... in slow motion. I think even without the excessive use of AI 
