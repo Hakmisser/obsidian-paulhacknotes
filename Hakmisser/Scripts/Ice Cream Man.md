@@ -171,3 +171,4 @@ The D O Double G? Yeah at first I thought it may have been an AI generated song 
 
 And that was the Ice Cream Man. Trust me I've wasted more time than you on this movie. I've watched this movie so many times making this video I've started getting PTSD every time I walk down the freezer isle.
 
+Watching this movie was like 
