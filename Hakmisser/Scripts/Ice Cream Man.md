@@ -163,3 +163,4 @@ They dig up the grave and find the necromancer and siren, and we see that the sy
 
 And in a full circle moment, we see the ice cream truck along with all the kids leave the now bloodied town of Bayleen Bay.
 
+![[Ice Cream Man-1792138306882.webp]]
