@@ -177,5 +177,5 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 >**Critic Consensus**: Ice Cream Man mistakes self-aware excess for subversion, serving up an increasingly uninspired splatterfest whose half-melted social commentary can't disguise how little nutritional value lies beneath its gore.
 >**Audience Says**: Horror nerds may appreciate the commitment to gore, but with its lack of direction and a subpar script, Ice Cream Man lands more silly than sinister.
 
-> [!quote] Screenrant | CriticL 3/10
+> [!quote] Screenrant | Critic: 3/10 Audience: 7/10
 > 
