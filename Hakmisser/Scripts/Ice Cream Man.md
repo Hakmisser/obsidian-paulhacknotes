@@ -149,3 +149,6 @@ The gang, now with Lizzie and Chris, pick up some tools from Rodger's shop and s
 
 When they arrive they are greeted by the Ice Cream Man and his junior militia ready to stop them. They form a blockade and start surrounding them. But my boy Chris ain't nobody's bitch. He rams the Ice Cream Man with his truck breaking through the blockade. Chris separates from the group volunteering to distract the Ice Cream Man to give our heroes a chance to end this whole debacle. And now with the plan in tow, and Chris potentially sacrificing his life, Lizzie wishes Chris good luck and gives him a kiss goodbye. Chris filled with determination and a whole lotta 'Chrizz' fight's for his new future and nothing can get in his way-
 
+![[Ice Cream Man-1792136744739.webp]]
+
+Damn, stabbed in the heart with a modified ice cream scooper
