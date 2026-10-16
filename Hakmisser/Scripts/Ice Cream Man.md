@@ -151,4 +151,4 @@ When they arrive they are greeted by the Ice Cream Man and his junior militia re
 
 ![[Ice Cream Man-1792136744739.webp]]
 
-Damn, stabbed in the heart with a weaponized ice cream scooper
+Damn, stabbed in the heart with a weaponized ice cream scooper. No amount 'Chrizz' can 
