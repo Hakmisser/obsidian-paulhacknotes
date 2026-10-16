@@ -147,4 +147,4 @@ The Ice Cream Man and army eventually find out where they're hiding and the prie
 
 The gang, now with Lizzie and Chris, pick up some tools from Rodger's shop and start headed over towards the cemetery to dig up some graves.
 
-When they arrive they are greeted by the Ice Cream Man and his junior militia ready to stop them. They form a blockade and start surrounding them. But my boy Chris ain't nobody's bitch. He rams the Ice Cream Man
+When they arrive they are greeted by the Ice Cream Man and his junior militia ready to stop them. They form a blockade and start surrounding them. But my boy Chris ain't nobody's bitch. He rams the Ice Cream Man with his 
