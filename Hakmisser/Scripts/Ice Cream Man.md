@@ -155,4 +155,5 @@ Damn, stabbed in the heart with a weaponized ice cream scooper. Unfortunately no
 
 ![[Ice Cream Man-1792137107063.webp]]
 
-Y'know I can't say I didn't see that one coming. During this scene by the way they are literally holding shovels and pickaxes and they kind of just watch Mia g
+Y'know I can't say I didn't see that one coming. During this scene by the way they are literally holding shovels and pickaxes and they kind of just watch Mia get taken.
+
