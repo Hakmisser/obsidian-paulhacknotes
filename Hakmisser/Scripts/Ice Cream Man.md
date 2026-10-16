@@ -178,4 +178,4 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 >**Audience Says**: Horror nerds may appreciate the commitment to gore, but with its lack of direction and a subpar script, Ice Cream Man lands more silly than sinister.
 
 > [!quote] Screenrant | Critic: 3/10 Audience: 7/10
-> Ice Cream Man plays like it's trying to shock us without any of the filmmaking tools to achieve that result. It's a fairly toothless, uninspired experience...
+> Ice Cream Man plays like it's trying to shock us without any of the filmmaking tools to achieve that result. It's a fairly toothless, uninspired experience..." - Senior Editor of Reviews & Prestige Content
