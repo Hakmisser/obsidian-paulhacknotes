@@ -190,4 +190,4 @@ Now I can spout out reviews left, right, and center and it very well may mean no
 > [!tldr]
 >AI bad, story bad, much gore
 
-Anyways, than
+Anyways, thank y'all so much for watching if you like this content don't forget to like and maybe, possibly subscribe? I'm doing new things on this channel
