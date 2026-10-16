@@ -158,3 +158,8 @@ Damn, stabbed in the heart with a weaponized ice cream scooper. Unfortunately no
 Y'know I can't say I didn't see that one coming. During this scene by the way they are literally holding shovels and pickaxes and they kind of just watch Mia get taken.
 
 They dig up the grave and find the necromancer and siren, and we see that the symbols on the robes match the flavors on the ice cream truck. Meanwhile the Ice Cream Man and kids start closing in. Jared grabs the ice cream scooper out of Chris's body and he and Lizzie start going to town on these bodies (pause). They decapitate the head of the necromancer and Jared holds it up to face the Ice Cream Man. But Lizzie notices somethings off about the siren and urges Jared to hold on. Jared however, ready to finally end this, takes off the hood and we see the decapitated head of Eli Roth, writer, director, and Marty, Jared and Lizzie's dad. Turning over to Lizzie we can see her staring at the 'siren' who is actually their mom. We see the Ice Cream Man smiling and we flash back to the walk-in where we discover that the priest was actually the 'necromancer' (literally the devil you can't convince me otherwise) all along.
+
+![[Ice Cream Man-1792138062314.webp]]
+
+
+
