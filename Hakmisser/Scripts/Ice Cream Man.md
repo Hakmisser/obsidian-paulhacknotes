@@ -157,4 +157,4 @@ Damn, stabbed in the heart with a weaponized ice cream scooper. Unfortunately no
 
 Y'know I can't say I didn't see that one coming. During this scene by the way they are literally holding shovels and pickaxes and they kind of just watch Mia get taken.
 
-They dig up the grave and find the necromancer and siren. Meanwhile the Ice Cream Man and kids start closing in. Jared grabs the ice cream scooper out of Chris's body and he and Lizzie start going to town on these bodies (pause). They decapitate the head of the necromancer and Jared holds it up to face the Ice Cream Man. But Lizzie notices somethings off about the siren and urges Jared to hold on.
+They dig up the grave and find the necromancer and siren, and we see that the symbols on the robes match the flavors on the ice cream truck. Meanwhile the Ice Cream Man and kids start closing in. Jared grabs the ice cream scooper out of Chris's body and he and Lizzie start going to town on these bodies (pause). They decapitate the head of the necromancer and Jared holds it up to face the Ice Cream Man. But Lizzie notices somethings off about the siren and urges Jared to hold on.
