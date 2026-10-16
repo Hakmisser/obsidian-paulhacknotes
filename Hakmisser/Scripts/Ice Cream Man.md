@@ -161,5 +161,5 @@ They dig up the grave and find the necromancer and siren, and we see that the sy
 
 ![[Ice Cream Man-1792138062314.webp]]
 
-
+And in a full circle moment, we see the ice cream truck along with all the kids 
 
