@@ -1,5 +1,8 @@
 ---
 cover: "[[Ice Cream Man-1792425127749.webp]]"
+tags:
+  - Horror
+  - Comedy
 Director: Eli Roth
 Writer: Eli Roth, Noah Belson
 IMDb: https://www.imdb.com/title/tt36893729/?ref_=fn_t_1
