@@ -1,10 +1,10 @@
 ---
-cover:
+cover: "[[Ice Cream Man-1792425127749.webp]]"
 Director: Eli Roth
 Writer: Eli Roth, Noah Belson
 IMDb: https://www.imdb.com/title/tt36893729/?ref_=fn_t_1
 ---
-![[Ice Cream Man-1792425127749.webp]]Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Iron Lung, Backrooms, Obsession, Resident Evil, and more which are all phenomenal in their own ways, but through all the blood and the scares there seems to be one movie that flew right under the radar. However, with all of these horror movies coming out I think I've had my fill, but I always leave room for dessert.
+Right now we live in a time where there is no shortage of good horror movies. Just this past year we got movies like Iron Lung, Backrooms, Obsession, Resident Evil, and more which are all phenomenal in their own ways, but through all the blood and the scares there seems to be one movie that flew right under the radar. However, with all of these horror movies coming out I think I've had my fill, but I always leave room for dessert.
 
 Welcome Ladies and Gentlemen, Boys and Girls, One and All, I am your host, Paul Hackemesser and this is **Ice Cream Man**.
 

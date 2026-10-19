@@ -9,3 +9,6 @@ views:
       - Writer
       - Director
       - IMDb
+    image: note.cover
+    cardSize: 220
+    imageAspectRatio: 1.5
