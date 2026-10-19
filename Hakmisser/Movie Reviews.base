@@ -6,3 +6,5 @@ views:
         - file.folder == "obsidian-paulhacknotes/Hakmisser/Movie Reviews"
     order:
       - file.name
+      - Writer
+      - Director
