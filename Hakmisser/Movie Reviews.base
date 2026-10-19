@@ -8,7 +8,7 @@ views:
       - file.name
       - Writer
       - Director
-      - IMDb
+      - tags
     image: note.cover
     cardSize: 160
     imageAspectRatio: 1.5
