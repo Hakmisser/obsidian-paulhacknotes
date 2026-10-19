@@ -8,3 +8,4 @@ views:
       - file.name
       - Writer
       - Director
+      - IMDb

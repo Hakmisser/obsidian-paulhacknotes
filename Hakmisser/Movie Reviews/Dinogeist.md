@@ -1,5 +1,6 @@
 ---
 cover:
-Writer:
 Director:
+Writer:
+IMDb:
 ---
