@@ -10,5 +10,5 @@ views:
       - Director
       - IMDb
     image: note.cover
-    cardSize: 220
+    cardSize: 160
     imageAspectRatio: 1.5
