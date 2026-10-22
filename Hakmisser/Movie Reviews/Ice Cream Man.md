@@ -189,7 +189,7 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 
 And these are audience reviews too by the way which tend to rate higher than critics. I try to avoid critic reviews since they tend to be too nitpicky and at times be against actual popular opinion. I also tried to filter out most of the ones mentioning AI (there was a lot of them) because I already went on my rant earlier and I think we can agree it's bad at this point right?
 
-But are you really gonna not believe me after I voluntarily tortured myself for days on end? Not cool bro.
+Usually I'd say you never know your But are you really gonna not believe me after I voluntarily tortured myself for days on end? Not cool bro.
 
 > [!tldr]
 >AI bad, story bad, much gore
