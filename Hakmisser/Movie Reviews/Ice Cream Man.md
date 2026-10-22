@@ -187,8 +187,8 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 > [!quote] Source: Rotten Tomatoes | Rating: **★★☆☆☆**
 > "Super silly. Almost like a kids movie turned up in the blood and gore. The acting is hallmark movie level. If you're looking for any meat on the bone story wise, you won't find it. You want stupid, slapstick gore, here it is." - **Jason W, @Thejasonwatts**
 
-> [!quote] Source: Rotten Tomatoes | Rating: **⯪☆☆☆☆**
-> "" - 
+> [!quote] Source: Rotten Tomatoes | Rating: **★☆☆☆☆**
+> "Five minutes into this movie it was clear the budget wasn’t there the script was lacking and it felt like they paid all the actors $100 to play a role this movie was a waste of $15" - **Tanner S, @RT48739387**
 
 > [!quote] Source: Rotten Tomatoes | Rating: **⯪☆☆☆☆**
 > "I've never felt the need to write a review about any movie before, but this film is simply so bad I genuinely felt the need to share my opinion for the first time. Not only the characters but the plot itself is extremely superficial, it has a very poor development, many inconsistencies and horrible visual effects. I also noticed some of the animations were made by AI, which for me is only a representation of lack of work and compromise for the filming. Considering I genuinely had to pause from time to time just to take a deep breath of pure exasperation before continuing the movie, I wouldn’t recommend this to anyone at all unless I wanted them to feel like they've just wasted an hour of their life." - **Juliana M, @RT41701144**
