@@ -187,18 +187,7 @@ I think even without the excessive use of AI, which IS excessive I mean whole as
 > [!quote] Source: Rotten Tomatoes | Rating: **⯪☆☆☆☆**
 > "I've never felt the need to write a review about any movie before, but this film is simply so bad I genuinely felt the need to share my opinion for the first time. Not only the characters but the plot itself is extremely superficial, it has a very poor development, many inconsistencies and horrible visual effects. I also noticed some of the animations were made by AI, which for me is only a representation of lack of work and compromise for the filming. Considering I genuinely had to pause from time to time just to take a deep breath of pure exasperation before continuing the movie, I wouldn’t recommend this to anyone at all unless I wanted them to feel like they've just wasted an hour of their life." - **Juliana M**
 
-
-> [!quote] Rotten Tomatoes | Critic: 23% Audience: 46%
->**Critic Consensus**: "Ice Cream Man mistakes self-aware excess for subversion, serving up an increasingly uninspired splatterfest whose half-melted social commentary can't disguise how little nutritional value lies beneath its gore."
->**Audience Says**: "Horror nerds may appreciate the commitment to gore, but with its lack of direction and a subpar script, Ice Cream Man lands more silly than sinister."
-
-> [!quote] Screenrant | Critic: 3/10 Audience: 7/10
-> "Ice Cream Man plays like it's trying to shock us without any of the filmmaking tools to achieve that result. It's a fairly toothless, uninspired experience..." - **Senior Editor of Reviews & Prestige Content, Alex Harrison**
-
-> [!quote] IGN | 4/10: Bad
->"Eli Roth’s Ice Cream Man is an empty meal of a movie and lacks the brains to be anything more than a pale imitation of other far better horror movies that have come before it." - **Chase Hutchinson**
-
-And these are audience reviews too by the way which tend to rate higher than critics. I try to avoid critic reviews since they tend to be too nitpicky and at times be against actual popular opinion. I also tried to filter out the ones mentioning AI because I already went on my rant earlier and I think we can agree it's bad at this point right?
+And these are audience reviews too by the way which tend to rate higher than critics. I try to avoid critic reviews since they tend to be too nitpicky and at times be against actual popular opinion. I also tried to filter out most of the ones mentioning AI (there was a lot of them) because I already went on my rant earlier and I think we can agree it's bad at this point right?
 
 But are you really gonna not believe me after I voluntarily tortured myself for days on end? Not cool bro.
 
